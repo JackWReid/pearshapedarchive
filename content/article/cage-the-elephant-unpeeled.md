@@ -1,0 +1,19 @@
+---
+title: "Cage The Elephant - Unpeeled"
+slug: "cage-the-elephant-unpeeled"
+date: "2017-07-28"
+author: "Taylor-William Hill"
+rating: "3.7"
+---
+
+I've never particularly been the biggest fan of live albums; I believe that the sound emitted in a gig is something that isn't supposed to be recapitulated and relayed for audiences to recapture: it is it's own entity and once you've had that listening experience, you need not hear it ever again. Although, on the contrary, there are many arguments against my point; live albums make an honest sound of the band accessible for those who're unable to actually attend gigs, you know, for people like myself who can't afford to go to Reading/Glastonbury. Or, annoyingly, if the band I like just has a habit of only visiting London and Glasgow, two places that are inaccessible to me. It seemed a bit futile of me to choose an album which is a live recording, but, I wanted to splurge out and try something different, so alas - here is my review for Unpeeled:
+
+Unpeeled is probably the word best used to summarise the 'honest sound' I was referring to earlier on. Unless you're ELO or Arcade Fire, it's difficult for bands with a smaller personnel and production team to recapture the sound of the studio while on stage in front of thousands of adoring fans. This is what's really bizarre though: for the first four songs (upon first listen), I did not realise that this was a live recording - honestly - I just thought that they imagined semi-acoustic renditions of their previous songs with heightened percussion. There is also the inclusion of a few other groups' classics such as Wreckless Eric's Whole Wide World and The Stranglers' legendary Golden Brown. The former cover is pretty good whereas I wasn't too impressed with Golden Brown, although it must be difficult for most people to emulate the atmosphere of the original. The title of the album should have given such a hint that it was a live album, but I was too busy being surprised at the fact I had no idea the band were releasing an album this year that it just eluded me completely.
+
+The album is 21 tracks long and an hour and 20 minutes in total length and is probably the band's most bashful work. Matt Shultz, Elephant's lead vocalist even goes to say: "many times you’re adding sonic layers looking for something to hide behind, and what you don’t realise is that that vulnerability and that nakedness might be the most compelling and interesting thing about the song". That's a most reasonable comment and goes to show that being honest with one's music is what leads to musical expressionism, which is the ability to proverbially up-sheath emotions from the listener and, hopefully, the artist.
+
+The music is, for the most part, a pleasure to listen to; Cigarette Daydreams still sounds swell, Trouble somehow manages to sound better than how it does on Tell Me I'm Pretty and Aberdeen is probably the best song on the album. All of this sounds so impressive thanks to Matt's on-point vocal range, those fabulous orchestral strings that have been included in the set, and of course, the band's ability to do their own songs justice. I would strongly suggest streaming it if you're a fan of the band of course - just remember it's nothing new, just a live reimagination of what has already come before it, so on those marks, I probably wouldn't purchase it.
+
+After writing this review, it made me actively want to reconsider what I said at the very start: perhaps live albums aren't so bad? Although admittedly, it would be much better to be there at the moment; there is nothing illicit about listening back to it and appreciating the authenticity and uniqueness that others got experience, and hopefully one day, yourself.
+
+And listening to it now, the Golden Brown cover is pretty classy - give it a listen.

@@ -1,0 +1,19 @@
+---
+title: "Rediscovered #5: Milo Takes Baths EP"
+slug: "rediscovered-5-milo-takes-baths-ep"
+date: "2015-03-23"
+author: "Dominic Woodcock"
+rating: "undefined"
+---
+
+When the first line of the first song starts with “I hate Freud because I think he’s telling the truth”, you instantly know this isn’t your typical hip-hop release. Part-nerd, part-philosopher Milo released Milo Takes Baths in 2012, having built a small buzz around his debut mixtape the previous year. In the intervening years, he has joined the roster of Los Angeles’ Hellfyre Club record label and collaborated with some of his underground hip-hop heroes: Busdriver and Open Mike Eagle. Although Milo has a phenomenally solid career thus far, Milo Takes Baths is the release which stands out for its gorgeous instrumentals.
+
+In a sense, it is a concept EP as each track consists of an instrumental lifted from Will Wiesenfeld’s first full-length under the Baths moniker, Cerulean. Before hearing Milo’s take on the instrumentals, I was already familiar with the beat-laden dreamscape of Baths’ music. The shimmering timbres are so perfectly complemented by Milo’s self-assured and almost spoken-word flow that I now prefer Milo’s versions to the originals.
+
+The consequence of using these instrumentals, however, was that Milo Takes Baths has never been able to be physically released. The rights to the tracks are owned by Anticon Records and Milo never gained permission to use them. Thankfully, the label displayed a semblance of sympathy by allowing the music to remain in circulation, as long as Milo didn’t profit out of it. Consequently, it’s available for free download on Bandcamp.
+
+As well as these standout instrumentals, Milo’s lyrics are more intricately reference-laden here than anywhere else in his career. Ahead of anything else, Milo takes on nerd culture at every turn. Even the title of the opening track, The Confrontation at Khazad-dûm, refers to a key event in the Lord of the Rings. In its verses, the song flits between references to Lord of the Rings, Pokémon, Street Fighter, Dragon Ball Z and Futurama. Undoubtedly, Milo is trying to appeal to a different type of hip-hop fan than Jay-Z or Kanye West: he recognises that nerds like rap too. He is making music for people that spent their teenage years embedded in the same culture that he did. Most impressively, he weaves these reference pints into lyrical gems such as “This is for my brothers slaying metal Balrogs”, using the antagonist in the titular confrontation as a metaphor for depression.
+
+Not content with redefining hip-hop for nerds, Milo demonstrates his far-reaching knowledge in tracks which reference The Wire, The Mighty Boosh and Batman. Rather than loosely referencing culture for the sake of it, Milo weaves it into his whole personality. Each reference reveals a little bit more about his identity. By referring to Christopher McCandless (about whom Into The Wild was written) as a hero on The Ballad of Mermaid Man and Barnacle Boy, he shows that he idolises solitude and living simply – at whatever cost.
+
+Explaining his whole ethos, Milo admits on Lester Freamon Toe-Taps The Blues that he’s “not angry with Young Money Cash Money Billionaires," the label conglomerate which has featured Drake, Lil Wayne and Nick Minaj on its roster. Rather than taking on mainstream hip-hop, he accepts that there is a place for it. Within that landscape, he says that his “ego stops” at getting reviewed on The Needle Drop, a Youtube music review channel which had a significantly smaller following in 2012 that it does now. Through this, Milo reveals that he is content to carve out a niche within hip-hop for those who feel alienated by its mainstream artists. He does so perfectly, and Milo Takes Baths is one of the most entertaining and unique hip-hop releases of the 2010s.

@@ -1,0 +1,25 @@
+---
+title: "69 Love Songs #13"
+slug: "69-love-songs-13"
+date: "2016-11-25"
+author: "Oliver Rose"
+rating: "undefined"
+---
+
+**1\. My Love, My Life – ABBA**
+
+![abba](http://pearshapedexeter.com/wp-content/uploads/2016/11/ABBA-300x298.jpg)
+
+Björn Ulvaeus and Benny Andersson are geniuses and though seemingly no one will admit to it, everyone has at some time or another, loved ABBA (pictured). The melodies are saccharin; the production is timeless – they’re impossible to really dislike. Even the often dubious and clearly translated lyrics have about them a sweet kitsch; a particular, Scandinavian charm. For their treatment of the pop music formula and, moreover the incredible dynamics of their physical recordings, ABBA are in fact my favourite band of all time. My Love, My Life is a relatively unassuming number of theirs; an album track from 1976’s Arrival, you’re unlikely to have heard it unless, like me, you’re a major fan. Everything, from the gorgeous choral backing to the heart-breaking chord progression that drives the chorus, is a masterstroke, light-years beyond the immature glitz of their contemporaries and undeniably beautiful in execution. Soft rock drums; gently woven bass; a string section and partially spoken word vocals – it screams cheese, and yet for the sheer quality of its delivery, My Love, My Life remains sincere. Of particular note is its lyric. Written on the brink of the band’s first divorce (Fältskog-Ulvaeus), it takes the position of a torn lover; one waving apparently mature goodbyes, but through translucent and insisting protestations of unending devotion. In addition to a breath-taking rendition of Angeleyes he recorded with the Czars in 2004, John Grant has covered My Love, My Life as a solo artist. His rendition, recorded in Iceland for the Pale Green Ghosts sessions and available on the John Grant Gets Schooled EP, is a throbbing, minimal-wave take on the track that’s imbued with a classically wounded vocal, as homoerotic as it is devastated.
+
+**2\. Songs Of Love – The Divine Comedy**
+
+![the-divine-comedy-1](http://pearshapedexeter.com/wp-content/uploads/2016/11/The-Divine-Comedy-1-300x300.jpg)
+
+Neil Hannon’s brand of wry wit came along at just the right time. Bored with the now-militant and overly introverted otherness of artists like Morrissey and Billy Bragg, Britpop gave the music world of the nineties something to smile about. Hannon, a disciple of these once-acerbic demigods, took the opportunity to prance out of his native Ireland and directly into the idiosyncratic abyss left by his forebears as their seriousness became unwelcome in the new age of "laffs and frills". Abandoning the R.E.M.-esque jangle of the group’s debut, ringleader Hannon quickly redesigned the Comedy as a baroque-pop outfit for 1992’s Liberation, before dropping the wildly successful and excellently tongue-in-cheek Casanova in 1996. Songs Of Love, the album’s centrepiece, is a fantastically camp rumination on the difficulties of being the underdog in love ("my type hibernate in bedroom’s above"), fastidiously hooked on the kitchen-sink intricacies of adolescence and mired in forced classical tonalities that teeter foppishly on the brink of becoming faux-paux. Instrumentally, it’s a farcical joy in either of its forms, be it the Casanova version, which brims with buoyant harpsichords and vibraphones, or the choral vocal cut used as the theme music for Father Ted.
+
+**3\. You You You You You – The 6ths feat. Katharine Whalen**
+
+![the-6ths-1](http://pearshapedexeter.com/wp-content/uploads/2016/11/The-6ths-1-300x300.png)
+
+Compiling this list, it became increasingly difficult to avoid the progenitor of the whole thing – I’m referring of course to Stephin Merritt, frontman of lo-fi indie outfits The Magnetic Fields, The Gothic Archies, Future Bible Heroes and more latterly, the 6ths. Merritt’s sarky melancholy is inimitable; his multi-instrumental bubblegum entirely unique. Merritt’s favourite band ever also happens to be ABBA – and, despite the razor edge cynicism of his anti-ditties, one can observe quite clearly in the loose craftsmanship of his music, an innate romance with beautiful, beautiful melody. You You You You You is a simple song of reflective affection, enunciated off the airy lungs of Katharine Whalen, in keeping with the rule of the 6ths (Merritt created the project after discovering there were no tribute albums to him, meaning instead to forge one). In tandem with her fairy tone, Merritt strums monotonously on a syrupy chord progression as his god-given poetry soars overhead ("you make me feel like I’m seventeen again / you make everything beautiful seem new"). Unlike the classics written by Bob Dylan or Leonard Cohen, the songs of Stephin Merritt are neither particularly famous nor greatly obtuse; the charm lies instead in the directness of the observation and the subtle, self-aware humour of the sentimentality at play. I can’t recommend his music more, particularly if you’re a musician yourself – Merritt is, by far and away, the most coverable songwriter I’ve yet happened across.

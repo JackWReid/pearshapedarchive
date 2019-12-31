@@ -1,0 +1,21 @@
+---
+title: "Foy Vance"
+slug: "foy-vance-2"
+date: "2016-10-31"
+author: "Evan Phillips"
+rating: "undefined"
+---
+
+_Photo Credit: [Sarah Barlow/Stephen Schofield](http://www.standard.co.uk/goingout/music/foy-vance-interview-a3236806.html)_
+
+_**It’s fair to say that The Wild Swan is more sonically diverse than your previous releases, was that a conscious decision or something that’s been progressing over time?**_ It was a relatively quick turnaround, making the record. Making it was kind of like all the other ones really. I guess it’s an augmentation, there’s a tip of the hat to some of the stuff I’ve done before I suppose. The whole idea of this record is to get the songs the love they deserve. So the record doesn’t have a sonic feel really. Like Joy Of Nothing was a bit more thread-lined, but this is just more a collection of songs. We tried to create the right world for the songs. It was just nice to know that when this one was finished, there’s a few more cogs spinning to get it out there.
+
+_**With Sir Elton John himself taking on an executive producing role, did he have much of an influence on how the songs eventually came to be and did having him in the studio add some pressure do you think?**_ He was really instrumental in the conversations and it was nice to have someone like him seeing songs through when I was compiling songs for the record, thinking what I should record, someone like him, who's so articulate and educated on music and the music that's coming out now. He buys every record that comes out every week, new releases. He buys them, listens to them, reviews them; he knows his stuff inside out, so it was nice to have someone like him on board just to talk through songs with. I found it really helpful.
+
+_**One of my favourite tracks from the record is Ziggy Looked Me In The Eye, was that song already written or did it come about as a direct tribute to Bowie?**_ I got very fascinated by the idea of revolution. I've been reading a bit of Noam Chomsky and been reading a bit of Owen Jones. He wrote this book called The Establishment And How They Get Away With It. In today's climate there's a chance that America might vote an Oompa Loompa in as president. Surely that's a sign for revolution.
+
+_**Growing up in both Ireland and the Deep South what sort of music really influenced you in those early years; considering the differences or likenesses between the two?**_ We lived in Oklahoma, in a small town that only had a few hundred people living there. It had a garage, a shop, a school and that was it. So, people would come around to our house every week, every Wednesday and Sunday. My dad was a preacher at the time, and they would sing. Singing was their worship. They were the Church of Christ and they didn't rely on instruments, but the cool thing about that was that everyone used their voice in a unique way. It was the regularity of that happening every week that influenced me. I would just sit and listen to the glorious noise that was being made. It was great.
+
+_**Your friendship with Ed Sheeran has been pretty well covered over the last few years, how did that partnership first come about?**_ Ed’s been aware of my music for a while, but him and I have been friends for about five years or so. So when I was out of my deal with the last label, I was talking about what to do next and he said "well, would you sign to me?" And it made complete sense. I mean, with someone as tenacious as Ed at the helm it could never be a bad thing. He just gave me the opportunity to make the record that I wanted and he would put it out.
+
+_**Slightly deep to finish, what piece of advice would you impart to your 16 year old self; be it musical or otherwise?**_ I say to anyone who aspires to be a songwriter, just do what pleases you and let everything else follow. Don’t write for radio play or to try to pitch to a specific artist, just make the music you enjoy making. That kind of passion and authenticity will translate and people will feel it. Another bit of honest advice is, be prepared for a road where you don’t make a lot of money. Just let music be your joy. And don’t give yourself timetables. I know that if I had even a modicum of this kind of success in my 20s, it would have gone straight to my head, messed up my creative spirit and led me down a much less fruitful path.

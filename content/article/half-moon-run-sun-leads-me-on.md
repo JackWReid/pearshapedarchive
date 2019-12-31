@@ -1,0 +1,21 @@
+---
+title: "Half Moon Run - Sun Leads Me On"
+slug: "half-moon-run-sun-leads-me-on"
+date: "2015-10-23"
+author: "Jed Fletcher"
+rating: "3"
+---
+
+Three years on from Dark Eyes, an indie-come-new-wave-folk masterpiece of a record, Half Moon Run have descended from Montreal to plop Sun Leads Me On into our laps. Bit of background: the band is an all-male four-piece whose music is generally super chilled out and utilises the timeless compliments of percussion and harmonic vocals to produce some really stunning compositions. Their debut, Dark Eyes, was very well received and earned them lots of festival bookings plus a European tour due to its fascinating positioning between romanticism and melancholy.
+
+Like any good band in the current indie scene, Half Moon Run decided to mix it up a little in their second collection of tracks – rather than banging out a lacklustre repetition of their premier oeuvre. Sun Leads Me On falls away from the tighter, eerier production in Dark Eyes and instead ventures closer to western folk. The acoustic guitar is sharper to the ear and, in general actually, the instrumentals are a more dominating element of each track.
+
+For me, the best of this album comes in the beginning; the tracks are reminiscent of the songs that made me love the band, but at the same time they introduce that more folkish element. I Can’t Figure Out What’s Going On opens with a gentle guitar sequence accompanied by light percussion and vocals. After this the mixture of strings and more heartfelt singing propels the piece from folk through to indie rock. Therein we have the best aspect of Sun Leads Me On exemplified, and in the next few tracks the band give a pleasing array of styles which for the most part orbit that folk/indie core. Consider Yourself does actually break from the mould with distorted guitars and up-tempo drums with a rockier feel to most of the group’s stuff, but then Hands In The Garden happens. I really adore Hands In The Garden; it’s part lullaby and part folk-rock ballad – utterly entrancing and beautifully unpretentious.
+
+Reaching the mid-point in the LP, pre-released single Turn Your Love provides another calming sense to proceedings while injecting some more oomph with faded, rocky choruses and instrumental sequences which we missed in Hands In The Garden. What’s interesting about this album is that it so effortlessly flitters between delicate country-style pieces and more traditional indie rock. Epitomising this phenomenon is Narrow Margins with its gentle and precise guitar melodies pit against a seductive bassline, piano scales and those omnipresent harmonies.
+
+After this point, however, the magic begins to fade. I’m not saying that the songs dip to a tremendously low quality or anything, it’s just that the true beauty of the earlier tracks is harder to detect. The eponymous song, Sun Leads Me On, is nice to listen to at first, but after a few verses I got bored and slightly agitated by the repetitiveness and what I thought was a slightly off-par performance on the vocal side of things. It Works Itself Out and Everybody Wants both suffer similar symptoms.
+
+Following a late interlude named Throes (which was excellent and I kind of wish was a full track), the listener enters the final run of the album. Devil May Care seems like something straight out of a Jason Reitman film (e.g. Juno) and has a really affirming feel to it – using the band’s harmonica to good effect. Also resembling something off an indie film soundtrack, The Debt’s calm, almost Beatles-y instrumental ushers in the end track, Trust. Starting with a crazily subtle bunch of electronic notes, Trust builds into a psychedelic rock track – the only of its kind on the LP – and leaves you with a nice warm feeling at the end of the forty-seven-minute record.
+
+I started forming this review with the anticipation of sounding slightly bitter and let down, and though it may have been somewhat dull at points, I thought this was quite a pleasant work! Thirteen tracks of Dark Eyes quality music would have been a push and in reality the good songs on this LP are just as good as any you’ll find on indie or folk albums alike this winter. You won’t hate yourself for skipping this record, but I reckon you’ll pat yourself on the back if you give it your time.

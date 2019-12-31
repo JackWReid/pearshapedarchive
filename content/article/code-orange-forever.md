@@ -1,0 +1,15 @@
+---
+title: "Code Orange - Forever"
+slug: "code-orange-forever"
+date: "2017-01-13"
+author: "Anastasia Filina"
+rating: "3"
+---
+
+Code Orange is an American hardcore punk band that formed in Pittsburgh, Pennsylvania, in 2008. The band has so far released three studio albums, Forever (2017), being the most recent one. Despite receiving a lot of positive reviews from a variety of critics, the band cannot be compared to a contemporary mainstream artist, as their audience acquire to have a particular music taste. For the sake of an argument, a Marmite metaphor could be used - either you love it or you hate it, however you must taste it to find out which side are you on!
+
+“Paint the picture how you want it/It’s yours to make fit” states the last two chorus lines of, in my opinion, the least hardcore punk song, Bleeding In The Blur. Indeed, Code Orange had made sure to follow this motto in making their Forever album and created a [“dose of mutant, future-proof metallic hardcore”](http://www.rocksound.tv/reviews/read/code-orange-forever), which became, as some critics put it [“a patchwork of distorted vocals, industrial beats, spine-chilling drones and fucking massive grooves, suffused with pure disgust.”](http://www.rocksound.tv/reviews/read/code-orange-forever) One of many effective techniques used in the album is the abrupt, jarring transitions between verses and riffs, which, while one might find chaotic and antagonistic, another, could appreciate for all the interesting and intriguing nuances that this album holds for its listener. With Forever, Code Orange have put together a record that, arguably, a few others in this genre would have the nerve to attempt making, creating the balance which allows them to [“stay engaging across the set without losing any of their previous weight or momentum”](http://exclaim.ca/music/article/code_orange-forever).
+
+It is important to understand that Code Orange have already set a pretty high standard with their previous album I Am King, thus making Forever even more impressive as it pushes their sound to new levels.  Ultimately, the band has taken a basic music sound formula, adding a hefty, angry and at times creepy atmosphere, which could be heard especially clearly in the opening track - Forever.  In addition, the Code Orange utilises variety of human emotions that often range from daunting and hysterical to dynamic and energetic, creating the sense of fulfilment, if it could be described as such. Some tracks, as The Mud and Real, maintains our interest by moments of contrast in its tune, never letting the listener get too comfortable with a single melody and almost forcing us to pay attention to a constant shifting rhythms.  Instruments used to achieve such effect are the combination of pulsing synth and samples based around the chaos of furious guitar riffs.
+
+Code Orange offers their fans a new combination of tunes in our freshly started 2017.  With their music sounding so sinister, yet to some extent, so intriguing, the band gives us the invitation to hell. Will you take their offer?

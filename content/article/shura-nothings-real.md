@@ -1,0 +1,19 @@
+---
+title: "Shura - Nothing's Real"
+slug: "shura-nothings-real"
+date: "2016-07-08"
+author: "Hope Claydon"
+rating: "4"
+---
+
+You know those nights when you can’t get to sleep because you’re too busy kicking yourself over that weird thing you said in 2009? It’s exactly those sleepless nights of self-reflection that has inspired Nothing’s Real, the debut album from electropop extraordinare Shura - a collection of songs ridden with 80s-esque synths that explore her romantic wrongs and shoulda,woulda, couldas.
+
+Shura is the nom-de-guerre of 25-year-old Alexandra Lilah Denton**,** a former Manchester City youth footballer-turned synthpop songtress. ‘80s groove’ and ‘young Madonna’ are phrases thrown around a lot by music critics discussing over Shura’s sound, but you just have to listen to Nothing’s Real’s brand of polished pop once to understand it’s pretty hard to not to make those comparisons. The title track, for instance, opens with a pulsing disco beat, electronic synth, and purring vocal delivery from Shura that makes the song incredibly slick and infectiously upbeat - but it has a definite 80s groove.
+
+Shura stated in an interview recently that one of her biggest motivations for writing pop music was because she was so disillusioned by the bolshy ‘confidence’ of the voices currently coming out of it - the bravado of singers boasting about their romantic endeavours and the ease at which they can acquire new ones (see: Timberlake’s “I’ll have you naked by the end of this song”, Drake’s “that’s why I need a one dance”, etc. etc. etc I could go on for hours). Wanting to hear a new perspective in pop - a more modest perspective she could relate to - drove Shura to create a fantastic and surprisingly refreshing paradox of bold pop anthems set against timid and retiring lyrics (one song is literally called 2Shy).
+
+The result is an album that’s personal and deeply introspective; the songs on Nothing’s Real deal with her experiences with panic attacks (Nothing’s Real), the setbacks of her own introversion and the relationships said introversion has hindered from developing (2 Shy, What’s It Gonna Be?), or even starting up at all (What Happened To Us?, Kids N Stuff), meanwhile, mourns the unexpected ending of a relationship, as the narrator struggles to process their new post-breakup reality in raspy whispers (“wish I’d known from the start / that we would never ever work things out**…**”). The dance-beats on some of these tracks are infectious to listen to - White Light is over 10 minutes long but it’s worth sticking with it. She’s near flirtatious here, a bold move for the otherwise very shy and retiring Mancunian (’You’re different, I like it… you’re different, don’t hide it.’)
+
+Woven intricately throughout these tracks are songs with short spurts of warped and muffled audio clips from different home videos (Shura’s father is a documentary maker). A four-year-old Shura can be heard murmuring casual dislike of her her twin brother Nick (her co-star in her fantastic music video to What’s It Gonna Be?), and her mother in another condemning her smoking. It’s otherworldly and a bit disconcerting but highlights, I suppose, just how personal a project this is for Shura - and how much of herself she was willing to unveil for the sake of the album.
+
+The beauty of Shura yearning to make music so personal to her is that the songs are both earnest in their yearning and also incredibly relatable. Who hasn’t, to some extent, mused over their past wrongdoings - wondered how old relationships might have panned out differently? Whilst there are undeniably some songs on this album that are a lot stronger than others, Nothing’s Real is a fine debut and a fantastic lesson to all in how to write a good pop song - and the overwhelming success of the album’s lead track Touch (over 26 million hits on the music video on YouTube and counting) proves they’re lessons worth listening to.

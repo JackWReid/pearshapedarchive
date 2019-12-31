@@ -1,0 +1,27 @@
+---
+title: "Clean Bandit - New Eyes"
+slug: "clean-bandit-new-eyes"
+date: "2014-06-01"
+author: "Jon Hall"
+rating: "5"
+---
+
+Fresh from the studious ovens of Cambridge University, this ‘electro quartet’ offer an unprecedented change in electro composition. In fact it would be misleading to define Clean Bandit as emphatic of only one genre of music when their debut album, New Eyes, unites such a variety of styles. The most obvious start would be their first single of 2014, Rather Be – an immediate chart success due to the serene combination of strings and electro that perfectly demonstrates their seemingly, effortless ability to blend contrasting styles of music. Although on the surface the song appears to be a generic conformity to the dance-pop music trend, the melody sticks to your aural palette with distinction while also satisfying the masses to create a summer hit.
+
+Their second single, Extraordinary, can also stand on its own two feet as Chatto’s cello encircles the voice of 16 year old Sharna Bass, or “the Rihanna of South London”. All the featured artists’ vocals are strong but consistent enough to not detract the attention from the rhythm. A large vocal range would not only impose on the cello but also upset the balance of each song.
+
+Yet for critics who may see only a couple of stand-out singles supporting the rest of the record, Come Over and Heart On Fire confidently assert the Parthenon-like strength of the album. A personal favourite, Come Over, is a surprisingly successful collaboration of reggae into the electro-classical mix. Its position between RnB and electro remains indistinguishable, a quality that means the record doesn’t tick any one box. Dust Clears similarly demonstrates Clean Bandit’s versatility across genre. The shift to strings is another pleasant surprise that the album’s composition keeps throwing at you. While it is clear each song has been painstakingly constructed, such great examples of composition show the group’s ability to incorporate electro and classic, effortlessly.
+
+Clean Bandit’s use of cello is of particular importance given the occasional resurfacing of strings in pop music over the last year, and may act as an indicator of the next up-and-coming trend. While the strings’ melodic versatility speak for themselves, in addition they help to identify the specific urban lifestyle of Clean Bandit. “The blend of classical and digital seems to reflect the spontaneous aural mash-ups you hear in city living – snippets of music from a car window in a traffic jam; the ting-ting-ting of a phone,” as Paul Lister appropriately describes. This permits New Eyes to be classified as an eclectic album derived from a huge variety of sources; classical, electro, pop, RnB and reggae to name a few.
+
+The most ambitious collaboration of the album remains that of classical and electro however, and the underlying negative stigma of electro is confronted in Mozart’s House. A male in the intro asks, “So you think electro is boring? You think it is repetitive?” This is shortly followed by a dramatic cut between both contrasting musical styles. Although straining, somehow this brash compilation works, and in particular, the string interlude is a glorious feature that exudes the confidence of the album. The boldness of Mozart’s House is by no means an arrogant self-congratulation of the band’s melodic brilliance however, as Birch shows. This modest number, with its haunting vocals, is chilled enough for any London Grammar fan to take an instant liking to.
+
+Whilst individually distinct, the track list combined contributes to an infinitely varied album that certainly makes the album title, New Eyes, appropriate. Clean Bandit demand an unprejudiced perspective of electro music to be appreciated, and whilst a few songs flirt with pop music conformity, the individual character of the album remains irrepressible.
+
+It would be unfair to not offer some constructive criticism however, no matter how difficult it is to find. For a title-named track, New Eyes lacks the slickness and natural flow the rest of the record possesses. Even the rich RnB flavour of the featured artist was unfortunately more reminiscent of Nicki Minaj than the recently rapper-reborn Beyoncé.
+
+Additionally, while I feel the use of multiple styles creates the album’s identity, it is understandable why some critics may feel they clutter the album. Would it be fair to call this overly ambitious? Only if using so many styles didn’t pay off… but instead it does. It is Clean Bandit’s ambitious nature that has resulted in an album that both reflects their varied taste in music and natural ability to compliment those tastes rather than contradict.
+
+Thinking of Clean Bandit’s future work (and inevitable collaborations) is exciting, with so many avenues now open having proved their versatility across genres. This versatility makes it impossible to predict their direction for a second album but rightly so given the impressive nature of New Eyes with which they deserve to bask in for a long time yet. As a whole, New Eyes successfully demonstrates Clean Bandit’s distinctive character, flare and confidence. So you’ve never liked electro? That doesn’t matter, you can still like this album’s spectrum of musical styles and brilliant composition that defies its categorisation as a single genre.
+
+Ambitious, fresh and artistic, Clean Bandit are anything but classic electro and anything but boring.

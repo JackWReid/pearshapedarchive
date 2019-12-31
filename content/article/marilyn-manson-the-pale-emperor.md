@@ -1,0 +1,17 @@
+---
+title: "Marilyn Manson - The Pale Emperor"
+slug: "marilyn-manson-the-pale-emperor"
+date: "2015-01-19"
+author: "Jake Massey"
+rating: "3"
+---
+
+Marilyn Manson is a band which finds its past inescapable, and this works to its advantage and to its detriment. Arriving at the right time with a macabre aesthetic that was as comic as it was disturbing, Marilyn Manson released a string of commercial hits that were lauded by critics before slipping into what many view to be a latter career slump. Though Manson's legacy granted a cult following, this has meant that even his weakest efforts have been commercially successful. It's also haunted his new work like a spectre. Indeed, it's common now for critics to use a new Manson release simply to lament about what the band used to be over a decade ago.
+
+The Pale Emperor is a departure from the band's old material and deserves to be judged on its own merits. Manson has crafted a record that is stripped back, bluesy and focused, eschewing extended metaphors and a sonically varied tracklist. In The Pale Emperor, Manson finds a sound which works, but fails to make it engaging for the fifty minute duration, leaving the album a laborious and often unrewarding listen.
+
+First track, Killing Strangers, introduces the album well. Thumping percussion builds anticipation as Blues-style guitar kicks in (a recurring feature, the Blues seem to be Manson's muse on this album). Manson's voice is weary and cracked, often bearing over the instrumentation in a strangulated and unpleasant way. Having said that, at the end of the first track, Manson's vocal becomes emotive, conveying the sense of suffering that Manson reaches for. This mixed reaction to Manson's singing is extended throughout the whole album – it's often impressive and effective, but it's also abrasive in the wrong places. Most of the album's verses have simplified instrumentation which don't align well with an overwhelmingly fraught vocal delivery that dominates.
+
+The listener gets their first rock chorus in Deep Six which transitions jarringly from the verse, but the chorus is a fuller sound that would go over well in a live setting. From there the album goes onto Third Day Of A Seven Day Binge, the lead single featuring a brilliantly punchy bassline, as the album settles into its rhythm until conclusion. One of the most interesting things to note in The Pale Emperor is the difference between control and looseness in all of its aspects. Simple verses segue into blaring choruses, Manson goes from clearly enunciated delivery to unhinged, slurry shouting, and guitars vary between simplistic riffs to wailing, uncontrolled tones. There is definitely dynamism and contrast in this album, as well as plenty of interesting effects placed throughout. Track six, Slave Only Dreams To Be King, is the best example of where The Pale Emperor gets it right in keeping to the formula while throwing enough curveballs to surprise and excite.
+
+Taken as a whole, however, there isn't enough variation in this album to excuse its irritating drawbacks, and although it's a focused effort, its positives drag after ten tracks. There are probably three or four viable singles on The Pale Emperor, and fans will feel reassured that Manson still has a skill at absorbing different genres into his music and using them effectively, but for many this will be an album with its merits stretched too thinly over ten tracks.

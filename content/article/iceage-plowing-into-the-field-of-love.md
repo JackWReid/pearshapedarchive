@@ -1,0 +1,15 @@
+---
+title: "Iceage - Plowing Into The Field Of Love"
+slug: "iceage-plowing-into-the-field-of-love"
+date: "2014-10-04"
+author: "Rob Scott"
+rating: "5"
+---
+
+This is the mission statement of the Copenhagen DIY-punk scene, NEW WAY OF DANISH FUCK YOU, which Iceage were born from – a collective of bands, independently established by its members, all of whom were under 14 at the time. One of the most exciting things about Iceage is this surrounding mythology. Rumours of fascistic or nationalistic salutes at their shows, dabbles in Satanism, an overtly homoerotic side project, an obsession with French surrealist poetry. In their merch store you can buy knives and locks of their hair. In interviews they mumble awkwardly and stare at their shoes. Their music has been equally provocative. Their sound is characterised by such energy and brittleness that they unapologetically play out of time and tune, but they have an undeniable knack for songwriting. Although frontman, Elias Bender Ronnenfelt, is a notoriously bad singer, his moaning snarling vocal style has a powerful allure and urgency.
+
+The most surprising element of this new release is a newfound theatricality. Iceage have swapped their bloody fists for a revolver, their fascism for romanticism, and their Sex Pistols bile for a good dose of Nick Cave eccentricity. And boy, does it work. The album opens with On My Fingers, a funereal hymn for the damned with a marching drum, immediately highlighting this change of scenery. The following track, The Lord’s Favourite, is a tongue-in-cheek track with an unapologetically country influence. Frontman, Elias Bender Ronnenfelt, croons and wails like a depressive drunk at a wedding reception doing a Johnny Cash karaoke, breathing and grunting heavily into the microphone. They even brave a harmonium-led ballad in (Pissing) Against The Moon.
+
+Despite this new dose of artistry and these new influences, Iceage have as much energy and urgency as ever, and their characteristic musical sloppiness is still there. Their blatant lack of timing and Elias’ out of tune wails create the same effect on the listener as when you’re looking after an angry drunk. They pace about, swearing and fidgeting, on the brink of lashing out, or doing something dangerous. Your muscles remain tensed and ears pricked, as the album perpetually teeters on the edge of chaos. This is particularly true of my favourite track, Glassy Eyed, Dormant And Veiled, which sounds like a cut from a deeply bleak Les Miserables spin-off. The snare drums roll, the trumpets sound, the intensity of Elias’ voice increases until his snarling and growling becomes inarticulate. His lyrics are fantastic, especially as English is his second language, occasionally reading like a misanthropic Rimbaud for the punk-era, and in others like a protégé of Nick Cave.
+
+I was worried that by drawing upon genres like country or goth rock, Iceage would lose their punk viscera, that they would mature beyond the irresponsibility and danger of their previous work. But this cacophony of bile and sadness is better than anything they have ever released.

@@ -1,0 +1,15 @@
+---
+title: "Gaz Coombes Impresses The Exeter Phoenix"
+slug: "gaz-coombes-impressed-the-exeter-phoenix"
+date: "2015-11-24"
+author: "Dan Griffiths"
+rating: "undefined"
+---
+
+The slower tempo, the smart jacket and the wedding ring suggest that Gaz Coombes has grown up. However, the on-stage beers, stories of drugs and the bright red guitar are proof that there’s life in the 90s frontman yet. Gaz gave a solo performance at Exeter’s Phoenix on the back of his Mercury Award- nominated album, Matador.
+
+The former Supergrass frontman was a treat to watch, with the small venue ideally suited to his powerful vocals. His high, sharp voice filled the place with a consistency of sound that matched, if not bettered the produced sounds on the album. Good examples are The Girl Who Fell To Earth and 20/20, which sounded fantastic. The music he brought to the table was slowed down and the sort of thing you listen to appreciatively, standing and tapping your foot; there was little dancing going on until the end, where the tempo was raised. This was a pleasant surprise as Gaz’s captivating vocals are well worth standing and listening to in awe. Armed also with a reverb machine, Gaz alternated between guitar and piano with ease to back up his voice superbly.
+
+In addition to the music were amusing stories between songs. Detroit, apparently, was written after “a messed up day in Detroit where everything conspired against me… Although that might have been the paranoia from all the drugs.” He attributed the song, then, to his wife who comforted him over the phone against the effects of the “powder and the lines.” Despite this startling honesty, there was a swagger to Coombes’ movements that signified an assurance in his songs. It was backed up by the quality of both his music and the performance. He knew the audience would want an encore, and still made us beg for it. This brought the highlight of the gig. Casually describing how he made music “with a few friends 20 years ago,” he then launched into a performance of Caught By the Fuzz, one of Supergrass’ most popular songs and the one that launched them to fame in the 90s, before they made their name with Alright. It was like being at a gig 20 years ago; many of the audience looked as though they could have been at a gig where this song was originally played. However, the youthful excitement that came with the opening few chords were enough to know that Gaz is more than just a former frontman. He is an artist in his own right, and I will personally be looking out for any future gigs.
+
+Also worth a mention is the opening act, Hannah Lou Clark. She also performed alone, with a guitar and a drum machine her only accompaniments. She didn’t need much else however, as she filled the stage with an unerring confidence. The chords of the electric guitar throbbed infectiously, and her voice threatened to run wild with all the makings of a rock star. My Game was a good song of hers, but the highlight was Your Love, which she finished with. Her EP Silent Type is also worth a listen, and she should be one to keep an eye on over the next year or two.

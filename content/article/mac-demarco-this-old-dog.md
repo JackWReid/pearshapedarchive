@@ -1,0 +1,17 @@
+---
+title: "Mac DeMarco - This Old Dog"
+slug: "mac-demarco-this-old-dog"
+date: "2017-05-05"
+author: "Rasagnya Gurung"
+rating: "5"
+---
+
+Mac DeMarco is every teenage smoker's favourite Canadian man, with the London look. With the aura of a carefree skateboarder and the musical talent of an indie Frank Ocean, DeMarco's music appeals to an audience that enjoys simple yet eloquent lyrics and lo-fi instrumentals. At just 26, DeMarco has marked the released of his third full-length studio album on 5 May 2017. What started out as a joke for DeMarco with 2 in 2012, has now made him a lovable international star both on and off stage. Watching Mac DeMarco's interviews is a delight because it's humbling to know that a man as successful as him is so grounded. DeMarco's devoted connection to his roots reflects in his music and This Old Dog is proof of that.
+
+The promotional singles off of the album, This Old Dog and My Old Man were the perfect interlude to the album and set the right atmosphere for it. This Old Dog is an unconventional love song which addresses the concept of mortality and hints at the overall theme of the album: DeMarco's realisation of ageing and the lessons he has learned from his experiences. The second single, My Old Man sees DeMarco realising his resemblance to his father in a moment of self-awareness and regret. Much like This Old Dog, My Old Man touches upon ageing and highlights his fear of it.
+
+The cognisance of the dynamic nature of time is reflected in DeMarco's style of music as this album is his most acoustic one to date. This Old Dog is a very aptly named album as in quite a few of the songs, Mac discusses the troubled nature of his relationship with his abusive and alcoholic father. Despite the tragic relationship, DeMarco highlights the solace that love offers through songs like Sister and Still Beating. Every single song is beautifully crafted to take the listener through the mind of a dazed man coming to terms with the reality of life, whilst enjoying the things that matter. What's interesting about the album is that though it may come across as a very specific retrospective collection of thoughts, the concepts explored are struggles faced by everyone at some point in their lives.
+
+The most interesting aspect of the album is the versatility that Mac DeMarco shows, in terms of his lyrics and his production, in spite of staying true to his signature style. His new music is inherently different from any of his old stuff and reaches out to a wider demographic of people, and no longer limits his music to edgy stoners. Despite the heartfelt rawness of emotion in the music, one can't help but wonder if this album is a subtle attempt at going mainstream. Though there is nothing wrong about an artist capitalising on their art to make a comfortable living, part of me selfishly wants Mac DeMarco to be my dirty little secret. All this, in hopes that my love affair with the music of a man who will never know that I exist, can continue discretely without being bastardised for the public eye.
+
+However, it's almost as if DeMarco read my mind, as the intimacy that DeMarco prefers in his performances is echoed in this album. Combined with his soothing voice, This Old Dog is a rollercoaster of emotions and one of my favourite Mac DeMarco albums of all time. For the best listening experience, I would recommend a glass of rosé and room for dancing (realistically, I mean swaying).

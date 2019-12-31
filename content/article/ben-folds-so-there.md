@@ -1,0 +1,19 @@
+---
+title: "Ben Folds - So There"
+slug: "ben-folds-so-there"
+date: "2015-09-11"
+author: "Paige Evans"
+rating: "4"
+---
+
+I feel like Ben Folds is a hype that I kind of missed. My sister’s boyfriend is a huge fan, apparently he’s been on some a cappella show in America on the judging panel, and from putting him on shuffle on Spotify, he seems to have written some songs that I do occasionally blurt out. But honestly? Until Jono (that’s my sister’s boyfriend, by the way) came along, the name could’ve been of someone sitting in the back of lectures. Yet, Folds’ album So There is quirky, cute, and was successful in powering me through first week of second year. That’s a tough job. Thumbs up, Folds.
+
+Beginning with Capable Of Anything sets up the album for a positive start. As Folds tells his listener that they can effectively take on the world to some playful flute-work, I find my head bobbing along and I’m warming to him immediately. It’s upbeat, uplifting, and, putting aside the fun nature of the track, Folds displays intricate musicality. Piano, layered with instrument upon instrument, gives the track a complexity which is interesting to listen too. And vocally? Very pleasing.
+
+But Folds’ shows a different side and a different tempo with the following Not A Fan – accompanied by a softer violin and an intro of violins, the music sounds sophiscated as opposed to the previous jumpiness. Yet, the colloquial lyrics add an adorable edge, and remind me somewhat of Kate Nash’s Nicest Thing – sweet, with the theme of cups of tea making the listener go “Aww”. Folds relates home truths of relationships, being honest that he hates his girlfriend’s friends and the parallels of her being “so well read” whilst he “grew up on sugar cereal and T.V.” Its comedic, its honest, and the final spoken “so fuck you” is simple and perfectly timed.
+
+So There, as the title track, picks the tempo up again and by this point, Folds’ musical talent on this album is clear. The musical interlude is orchestral and beautiful, complicated but lovely, and the quiet build after this really adds emphasis to the track. As with the entire album, the harmonies are really impressive; they’re subtle, but delightful on the ear, and the rise of the flute at the end of the song shows Folds giving a musical middle finger to whoever the song is aimed at, producing a little chuckle. Indeed, it appears that Folds’ twisted sense of humour is central to this album – F10-D-A is just Folds singing the notes to musicians to play, Phone In A Pool relays the oh-so-tragic incident of throwing your phone in a pool after a concert (happens to everyone… right?), and Long Way To Go literally tells the listener how much time the track has left. This combination of wit and musical flair definitely is a winner for Folds, and this album a prize.
+
+Yet, I can understand why some amongst us would claim that they’re “Not A Fan”. Whilst Folds’ songs are extremely catchy and have a feel-good vibe, this can easily get annoying. Personally, I can’t listen to Phone In A Pool without it going round in circles in my head all day, and its not really that pleasant. Also, although Folds is undoubtedly very apt at his work, his vocals do lack range – they remain at the same, relatively high pitch throughout with little variation. But, in all fairness, the first line of Yes Man – “Why didn’t you tell me I got fat?” – makes every point I just made irrelevant. I’m easily amused and that is amusing, so I can forget about minor errors.
+
+In short, Folds’ album has many layers, and that’s not just in the actual music itself. Its funny but mature – c’mon, he has three piano and orchestra songs to finish the album – narrative but entertaining, and feel-good but reflective. Thanks Jono for giving the heads up to a great artist, and I’m just going to have a quick peek at some of his other stuff…

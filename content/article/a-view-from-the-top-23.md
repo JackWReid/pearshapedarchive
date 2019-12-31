@@ -1,0 +1,19 @@
+---
+title: "A View From The Top #23"
+slug: "a-view-from-the-top-23"
+date: "2016-03-13"
+author: "Jed Fletcher"
+rating: "undefined"
+---
+
+After ten weeks in the charts, Lukas Graham’s single 7 Years has maintained its reign as Number 1 for the fifth week in a row. Named after their frontman, Lukas Graham Forchhammer, the band turned heads via a couple of self-releases on YouTube, and haven’t looked back. I’m not a charts guy – not that I don’t like the music, I just prefer to have a connection to my library which only comes from searching outside of the mainstream – and doing my due diligence on Lukas Graham as a band, I found out they’re a determined outfit.
+
+The band is based around Forchhammer, whose desire to be a success (not to make deep, insightful music) drove him to seek fame wherever he could, be it on Danish TV as a child, or through music. This is what the four-piece set out to do: get fame, get rich, get happy. Their music is biographical and proud, which is fitting as a band borne out of Copenhagen’s famously artistic Christiana district. This element of their music, their efforts to always tell a story, is what I liked most in listening – and this is never more present than in 7 Years.
+
+This week’s chart topper follows Forchhammer from the age of 7 through to the present and then beyond, addressing nostalgia, his emotional formation, the realisation of his youthful yearning, and eventually his impatience and uncertainty over the future. The progression of the instrumental, even if slightly formulaic, is well thought out. Gentle piano keys atop soft chords and some fragile chimes raise in volume as Forchhammer describes his transition into his teen years; the emphasis on the piano gives way to a percussion-led piece as Lukas Graham forms and gain success; the instrumental climaxes as we reach the present story and dies down again before raising to the fore once more when the lead begs to know what life has in store for him at the age of 60.
+
+Lyrically, the song is sound. It’s clean and simple which is often a safe bet when you’re aiming to hit the top spot – complex songs (especially those in the domain of pop) often falter in the face of a broad audience. We naturally like stories as human beings, but this is where I thought the band fell; it’s all well and good telling me a story but I’d prefer something more interesting. The story is essentially: I was young, then I was less young, then I wanted to become a singer, then I became a singer and now I wonder if I’ll be happy when I’m old. Not enough emphasis is put on the interesting questions behind the track. What truly brings happiness? Is our future mapped out for us? Should we live life for ourselves or for those around us?
+
+I think that, as with most chart tracks, the message of 7 Years is probably a load of bull – no way are these guys looking 40 years in the future. I’m pretty sure that right now they’ll be looking to see if they can stay another week ahead of Mike Posner’s infuriatingly unoriginal I Took A Pill In Ibiza (featuring SeeB) and Rihanna’s Work (which I’m willing to the top next week). Further afield at the back end of the Top 10 we see some potential threats in Tinie Tempah’s collaboration with Zara Larsson, Girls Like, which has clawed itself up six places to Number 9 using just a horribly dull chorus and catchy beat, and also in Major Lazer’s summery Light It Up remix which is up four to Number 10.
+
+Last words: Nicely done, Lukas Graham; your track is a nice break from the club-banger dregs which gather at the peak of the UK charts, and you’ve clearly worked hard to get to where you are. Fingers crossed for Work next week and big up to Years & Years’ song Eyes Shut (my personal favourite of their music) which cameos at Number 37 about two years after its release.

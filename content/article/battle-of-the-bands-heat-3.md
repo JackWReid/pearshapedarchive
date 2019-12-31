@@ -1,0 +1,19 @@
+---
+title: "Battle Of The Bands: Heat 3"
+slug: "battle-of-the-bands-heat-3"
+date: "2014-02-10"
+author: "Sean Phillips"
+rating: "undefined"
+---
+
+Timepiece is the venue once again, as Campus Bands host the next installment of this year’s Battle of the Bands competition. With a high standard set over the previous two heats, Heat Three didn’t disappoint, showcasing the great variety and quality of live acts that are developing this year on campus.
+
+Kicking things off for the evening were newcomers, Brace For Impact, who teased a lush post-rock riff before launching into a twenty-minute, 90s-inspired, alt-rock assault. Although the influences are worn on their sleeves (think Green Day, Audioslave and Foo Fighters etc), this didn’t stop some individuality from shining through at points; second song and standout track, Start Of Something New - a superbly crafted rock song with a soaring chorus - being a case in point. Whilst Brace For Impact’s on-stage shyness stood out amidst a host of confident performers who took to the stage that evening, an assured Rise Against cover and a tight rendition of closing number Losing Touch brought their satisfying set to a close, only hampered by a slightly unflattering mix. A positive start, given that they’ll only improve from here on in.
+
+Next up were Campus Bands-regulars, Kaleidoscope Eyes, who showcased their brand of clean-sounding, blues-inspired, classic rock. Fronted by guitar virtuoso Simon Allington, who pulled off quite possibly the best guitar solo of the night before they’d even started playing, Kaleidoscope Eyes delivered a tight, cohesive and confident performance from start to finish, which ultimately saw them safely through to the next round. Self-penned track Last Look could be a long-lost Thin Lizzy number, with penultimate song Supernatural proving equally strong, during a set dampened only by a largely unresponsive crowd. Even a finale of the Black Keys’ popular single, Lonely Boy didn’t rouse the clapping of hands or the shaking of limbs - but everybody’s just waiting for the next round, right?
+
+With the room filling up and the atmosphere building, Ennor, playing their first live show, took to the stage. Exeter gigging regulars will recognise frontman Tom Elliott who has firmly established himself as a staple act in Exeter’s live music scene as a singer/songwriter in his own right over the past year. Ennor is in many ways a welcome extension of Tom’s solo material, and the folk influences which underpin his solo work run throughout - the checked shirts and cellist in tow kind of give the game away, but it’s a formula that works well. Despite gear issues pre-gig and constant chatter throughout even the most tender moments of the show, which threatened at times to undermine the overall sound of the band, Ennor showed (to their real credit) no signs of angst and delivered a confident performance. Penultimate song Hey! proved a real highlight before Harbour brought things to a sumptuous close.
+
+Ending proceedings of the evening were scrappy, lo-fi indie outfit, Beverly Macca, playing their first show as a three-piece having just started to make their name on the Exeter circuit as a duo. Kicking off with Swag Tree, which contains, without a doubt, the best riff of the evening, before the equally impressive Good Wolf, which comes across like Male Bonding covering Pavement. Sonically it works a treat, although you sense that Beverly Macca needed to be a little tighter to make it to the next round this evening, such is the competition. A cleverly re-worked cover of Big Deal’s Chair follows to a muted response, making you sense that tonight’s audience don’t quite get it, but Beverly Macca are no doubt the most innovative band on tonight’s bill, which is to be applauded.
+
+All in all, Campus Bands delivered another impressive night of live music which saw Kaleidoscope Eyes and Ennor make it through to the semi-finals.

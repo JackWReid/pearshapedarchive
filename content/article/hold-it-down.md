@@ -1,0 +1,17 @@
+---
+title: "Hold It Down"
+slug: "hold-it-down"
+date: "2015-08-26"
+author: "Matt Hacke"
+rating: "undefined"
+---
+
+As we all too often are forced to admit, we don’t quite have the scene in Exeter that our Southwestern compatriots in Bristol can indulge in. This isn’t to say that Devon isn’t saturated with innovative, exciting event outfits and acts themselves, but the relentless machines of Saturday at Motion or a week of listings at Colston Hall is something we struggle to parallel.
+
+One area, however, in which we punch above our relative weight is in the bass and house genres. Exeter has hosted a surprising number of huge names, with oft-mentioned nights such as Beats and Bass Presents Artwork in 2013 and the Dirtybird Blowout in the same year proving to be stand outs from a vibrant local scene that has provided a credible counterpoint to the ferocity of Bristol, London, and Manchester. With Hijacked now serving as a clear summer focal point in this regard, Exeter guarantees a multiplicity of well-executed and varied dance nights week in week out, ably spearheaded by what has been a golden age of local DJs and promoters for the last three years or so. It’s a testament to the strength of our homegrown talent that the sporadic DJ showcases at the Exeter Phoenix are some of the hottest tickets in town.
+
+With Hijacked sometime off however, what really stands out in the Winter Listings, for those who want the glamour of a Radio 1 friendly act or a hotly tipped producer, is the Hold It Down series over the next few months. Whilst for as long as I can remember this outfit has been involved in the Exeter circuit, last year, the calibre of their names really exploded, with [Hannah Wants](http://pearshapedexeter.com/hannah-wants-returns/), [Duke Dumont](http://pearshapedexeter.com/duke-dumont-returns-to-exeter/), and [Sigma](http://pearshapedexeter.com/a-night-in-the-life-of-matt-hacke-sigma/) just some of the acts that played at the Lemon Grove via their booking. This coming term, the bar has tangibly risen again, with a near unprecedented sequence of A-listers, including My Nu Leng (in collaboration with Fokus), Kurupt FM, Julio Bashmore, Mike Skinner, and DJ Luck. At the time of writing, the recent announcement of the SubSoul tour is a standout, which, including Bodhi, Shadow Child and Waze and Odyssey, looks to be one of the strongest midterm lineups Exeter has ever had. Furthermore, their flagship event at the end of Freshers’ Week, with Basement Jaxx, Friend Within and Wretch 32 included on the lineup for Northernhay Gardens is unequalled, and, it being the first event of its kind, I hope this sort of lavish fixture becomes a staple of the beginning of term schedule. Aside from the sheer clout of the names involved, the hybrid booking of grime and dance looks particularly exciting, as Exeter has often struggled to attract quality hip-hop and urban acts during my time at the university. With up-and-comers such as Stormzy booked on for September 19th, however, hopefully this trend will change over the next year or so.
+
+All in all, in what should be a highly exciting few months of music in Exeter, the Hold It Down series is a clear standout in terms of quality, eye-catching bookings. Whilst I’m excited for what has already been publicised, this series sets a really high benchmark for 2016, and we’ll be eager to see what is yet to be announced for the near future.
+
+_Photo: My Nu Leng_

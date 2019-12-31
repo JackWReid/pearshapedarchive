@@ -1,0 +1,17 @@
+---
+title: "A View From The Top #25"
+slug: "a-view-from-the-top-25"
+date: "2016-03-27"
+author: "Ellie Turner"
+rating: "undefined"
+---
+
+Looking at this week’s Top 40, I wasn’t quite sure where to start. In the five weeks since I last wrote for this column, the charts really don’t appear to have changed that much. The majority of changes have simply been the same songs shifting positions, with only a few new songs making an appearance. These new songs haven’t exactly been anything exciting either, just generic and uninspiring pop. After completely agreeing with [Charlie’s column](http://pearshapedexeter.com/a-view-from-the-top-24/) last week, in which she discussed how the charts have begun to disappoint her, I was really hoping for something new and impressive to prevent this continuing dissatisfaction. But, much to my despair, we have been left with Mike Posner’s I Took A Pill In Ibiza taking the top spot for the second week running.
+
+There are so many things wrong with this song. Firstly, the sheer arrogance of Posner’s lyrics - Charlie attributes it to an ironic humour, but the cynic in me is saying otherwise. The lyrics are a brief run through of several "first world problems" - complaining that he’s “stuck up on that stage singing” and “a real big baller 'cause I made a million dollars and I spend it on girls and shoes”. The fact that there are so many bigger problems in the world right now, as well as the fact that there are so many singers who would love to be up on “that stage singing”, means that the song just doesn’t sit well with me. This was particularly emphasised the other day when the song came on the radio followed directly by the news. I understand that this isn’t an issue found only in Posner’s lyrics, and obviously I’m not expecting everyone in the charts to be singing about wider world issues. I just think that lyrics to this excessive arrogance are a bit too much.
+
+At the risk of sounding like a total grandma, the lyric “I took a pill in Ibiza to show Avicii I was cool” didn’t sit well with me either. Essentially, Posner is telling his audiences that drugs are necessary to be "cool" and successful. It’s all well and good when you’re old enough to understand the lyrics and make these decisions for yourself, but it feels a bit wrong when my nine year old brother asks what taking a pill in Ibiza is. Aside from the lyrics, the song isn’t particularly strong musically either- it is a generic, forgettable beat layered with auto tuned vocals. In my opinion, there are so many other songs out there that are far more deserving of even half the recognition I Took A Pill In Ibiza has been given.
+
+It’s not looking particularly hopeful further down the charts either. The generic electronic beat and auto tuned vocals formula is seen continuously, from Fifth Harmony’s Work At Home at Number 3 to Major Lazer’s Light It Up at Number 11. Nothing is at all memorable, with everything sounding so similar that each song blends into one another.
+
+To end on a high note, Rihanna’s Work is still lurking in the Top 10 at Number 6. It’s upbeat, fun and a song that you can’t help but dance to. It’s catchy as well, a quality that is missing in Posner’s song. The lack of heavy bass means that Rihanna’s smoothly meandering vocals are given the spotlight, and whilst it’s definitely no Umbrella or Pon De Replay, the track provides a much needed breather in the midst of the charts.

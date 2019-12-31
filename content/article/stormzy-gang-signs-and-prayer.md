@@ -1,0 +1,21 @@
+---
+title: "Stormzy - Gang Signs And Prayer"
+slug: "stormzy-gang-signs-and-prayer"
+date: "2017-02-24"
+author: "Rasagnya Gurung"
+rating: "4.5"
+---
+
+I remember listening to Shut Up in 2016 for the first time when my friend couldn't stop playing it on repeat. Not being a very fan of grime myself, I hated it but the song eventually grew on me. Little did I know that this South London boy who seemed to be a one hit wonder at that point would end up being so huge. At the tender age of 23, Stormzy has established himself as modern era grimes' brand ambassador. From Drake and Kanye to the boys in the streets of Croydon, everyone knows Stormzy's name and he has done every single one of them proud with his debut album, Gang Signs And Prayer. The album art by itself is something to behold as it bears a striking resemblance to The Last Supper, which can be seen as a nod to the gospel inspired tracks on the album.
+
+Through his debut, we get to see every single side of Stormzy that makes him who he is. He unabashedly shows off the good, the bad and ugly of Michael Omari. The first song, First Things First, starts ominously with the sounds of a storm, and in the song itself Stormzy sets the record straight and delivers a strong punch to all the haters and critics. Similar to Shut Up, First Things First is a diss track to no one in particular and is the perfect example of the classic Stormzy flow. Following First Things First is Cold, which is so quintessential grime and so Boy Better Know™ that you can't help but bop to it. One part of the song that does manage to make quite an impression is:
+
+> "All my young black kings rise up Man this is our year And my young black queens right there It’s been a long time coming I swear.”
+
+It's very impressive how despite the song's overall peppy tone, Stormzy manages to sneak in a political message that resonates with so many people in these politically tumultuous times.
+
+By Bad Boys, I began to wonder if Stormzy was going to startle us with something other than his forte. Don't get me wrong, the Ghetts and J Hus collab with Stormzy isn't anything less than a grime match made in heaven but was Stormzy aiming for an underground grime classic or was he aiming for something more mainstream? I would have preferred the former but was actually surprised by the latter with the latter with the fourth song, Blinded By Your Grace Pt.1. One of my friends on Facebook referred to Stormzy as a sellout for having two gospel-like songs (Blinded By Your Grace Pt.1 and Pt. 2) and it does open up a massive forum for debate. Are these two songs Stormzy's attempt at cashing in on the recent successes that Kanye West and Chance the Rapper have experienced from a similar formula or are they a genuine display of his faith? Because I am blinded by my love for the wicked skengman, I am leaning towards the latter.
+
+With this album, we see a more sensitive and mellow side of Stormzy on songs like Velvet/Jenny Francis (Interlude), 100 Bags, Cigarettes and Cush, 21 Gun Salute, Don't Cry For Me and Lay Me Bare. Hearing Stormzy sing on Velvet was definitely less unpleasant than I expected - maybe it was the Nao sample that made me partial but that's just me. My favourite song on the album is hands down 100 Bags. From the very beginning, Stormzy hasn't been shy of letting people know about how much he loves his mother. 100 Bags is a tribute to his mother who raised him without a father and exposes the rawest version of Stormzy I have ever seen. The lyrics and flow are heavily driven by emotion and hearing a track like this from grimes' big man is very oddly pleasing because it humanizes him.
+
+Overall, I am happy with Gang Signs And Prayer as it caters to a fairly large demographic: the old school grime fans and grime beginners. The signature cheeky Stormzy lyrics are prevalent throughout the album along with perfect collaborators like Kehlani and J Hus. This may not be your typical underground grime album but for years grime MCs have been trying to put grime on the map, and I strongly feel like Gang Signs And Prayer is a step in that direction. Love the new Stormzy or hate him (#Merky), he is here to stay (and is currently number one in the iTunes UK albums chart).

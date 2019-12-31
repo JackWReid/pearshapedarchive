@@ -1,0 +1,25 @@
+---
+title: "BROCKHAMPTON - SATURATION III"
+slug: "brockhampton-saturation-iii"
+date: "2017-12-15"
+author: "David Crone"
+rating: "4.5"
+---
+
+BROCKHAMPTON have had a phenomenal year. They’ve released three albums, made a documentary, performed at some of the biggest hip-hop festivals and toured the USA. But even this wasn’t enough for the go-getting Kevin Abstract, who plans to have a SATURATION film completed in 2018 alongside the boyband’s fourth album. If there’s one thing BROCKHAMPTON is, it’s ambitious.
+
+Indeed, the group’s work has consistently been at the forefront of RnB and Hip-Hop, pushing the boundaries of genre throughout the year. Their first release, SATURATION, remains one of the most interesting albums of the year, and a personal favourite of mine. Whilst SATURATION II failed to have the longevity of its predecessor (and my review of it is somewhat over-zealous), it was still a fantastic record. As you can probably tell, the third record’s announcement was met with much anticipation. Luckily for fans of the boyband, SATURATION III delivers - America’s Favourite Boyband has returned, and with them comes another fantastic record. The boys are back in town.
+
+Perhaps the most immediately noticeable upgrade on SATURATION III is its production. The issues of ‘copying’ present on the group’s second album are gone: III’s instrumentals are entirely original. Producers Romil, Jabari, Kiko and Bearface have outdone themselves once again, creating a varied soundscape for the group to inhabit. Most songs on the album feature some sort of beat-switch, creating ever-shifting ‘journeys’ within each song. This truly shines on SISTER/NATION, which rises rapidly from a low-key electro to The Prodigy-inspired DnB, before bringing in 8-bit sounds and some experimental drum work. This is only the first 2 minutes of the track – from there the group leap between soundscapes that vary from 80s synth pads to a man whistling over acoustic guitar. The production is experimental, wild and thoroughly incredible.
+
+Whilst SATURATION II was Ameer-heavy to say the least, this instalment features a much more balanced palate of singers and rappers. On SATURATION II, only songs such as SWEET and GUMMY felt like true posse-cuts. SATURATION III, on the other hand, returns to I’s tradition of featuring many different members, providing much-needed variation.
+
+Likewise, many of the group’s members have taken to varying their styles. For example, while Kevin Abstract still provides many of the album’s hooks, Matt Champion has taken up singing, providing a smooth hook on later track RENTAL. Indeed, Matt truly steps up on this record: across the album he pulls out a series of versatile, unique flows that give him the crowning verse on many of III’s tracks. Angel-voiced Joba is the second member to truly step it up. After a brief taste of rapping on SATURATION II, he brings out his wilder side across much of III, resulting in a much more developed sense of his off-the wall persona.
+
+This is where SATURATION III finds a lot of its success. BROCKHAMPTON’s diversity is one of its strongest features – it allows the group to cover a huge variety of subjects, and really develops attachment with each member (as any true boyband should). For example, Matt’s ‘ladies’ man’ persona and smooth delivery contrasts with Kevin’s wilder hooks and talk of familial problems. Likewise, Dom’s rapid-fire flow and lyricism contrasts nicely with Merlyn’s loud, aggressive and wild verses. Perhaps the most polar example is between Ameer and Joba – Ameer’s blunt accounts of drug-dealing and institutional racism contrast with Joba’s eccentric voices and playing of multiple characters. And yet, all are undeniably BROCKHAMPTON.
+
+Lyrically, the album finds the group exploring consciousness more than ever before. On JOHNNY, Joba’s account digs deep – “I’m a shithead son and I’m bad at growing up / My life ain’t been the same since my dog died, since my girl left / I quit drinking and drugging and still can’t get ahead / Been at a loss for words / It seems I’m destined to fall apart when I’m depressed.”
+
+However, it’s not just Joba that delivers a more personal style – all of BROCKHAMPTON’s members truly look inwards. The next track, LIQUID, paints Ameer’s loneliness (“I grew up all alone / My mom and dad fighting”), Dom’s dire circumstances (“I’m used to ramen noodles / Victims of mental illness / Products of neighbourhoods with broken souls and wounded spirits”) and ends with a painfully raw hook from Kevin: “I was playing rock-paper-scissors with imaginary friends / Imagine having no friends.” It’s clear that the group’s lyrics have matured, and the album is all the better for it.
+
+Overall, it’s hard to fault the third instalment. Whilst it doesn’t have the impact of the first SATURATION, it’s advantages make up for it – SATURATION III features some of the best songs BROCKHAMPTON has released, and is a marked improvement in production, lyricism and experimentation for the group. Despite similarities with its predecessors, we’re getting more of a good thing - and it’s hard to fault that.

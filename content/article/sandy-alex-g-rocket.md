@@ -1,0 +1,19 @@
+---
+title: "(Sandy) Alex G - Rocket"
+slug: "sandy-alex-g-rocket"
+date: "2017-05-29"
+author: "John Western"
+rating: "4"
+---
+
+At the age of just 24, (Sandy) Alex G has created more music than many artists do in their entire lifetimes. The Philadelphia based multi-instrumentalist and songwriter has already released eight studio albums. Not only that, but his eighth effort just happens to be his greatest and most varied yet, without foregoing the bedroom-indie-rock charm of his previous records.
+
+For the majority of his career, Alex has recorded his music on a MacBook in his bedroom and released them online via Bandcamp, in much the same way as Will Toledo of Car Seat Headrest. Through this he managed to secure a small but loyal following, although mostly based in and around his native Philladelphia. However, breakout record DSU and 2015’s Beach Music, his first release with current label Domino Records, paved the way for Alex to become one of the biggest cult heroes in current indie rock.
+
+Rocket is an incredibly diverse record. Opener Poison Root, as well as singles Proud and Bobby are alt-country songs, complete with acoustic guitar, violin and banjos. Bobby is a particularly gorgeous track, a duet between Alex and frequent collaborator Emily Yacina with lyrics referring to the darker side of love, as anxieties boil over in its conclusion with repetition of “I know what you’re doing, I know you, I know you, I tell you” in attempt to enforce a point. On the other hand, Brick is perhaps the most abrasive song in Alex’s entire discography, a noise rock track that sounds almost like something Death Grips could create. Shouts of putting “a brick in the wall between me and you” run through the track, conveying a disconnect between himself and someone he previously felt close to. Despite the variety, the album never becomes a total mess, and in fact is part of the charm.
+
+Last year many were surprised to find that Alex G was one of the features on Frank Ocean’s much anticipated third album Blonde, on which he provided guitar parts to White Ferrari and Self Control. The influence of this experience is littered throughout Rocket. This is most apparent on album centrepiece Sportstar, with its descending piano keys and auto-tuned vocals reminiscent of many of the tracks from the aforementioned album. In addition, where before he enjoyed control over the majority of the instrumentation, Alex has acquired a newfound openness for collaboration. As stated previously, Emily Yacina returns to provide vocals. As well as this, an array of artists contribute musical parts, including Alex’s own brother David Allen Scoli, who also appears to provide piano and saxophone. 
+
+The latter half is where the album truly comes to life, though. Judge is brooding and sinister, pairing Alex’s vocals with synthesisers not dissimilar to the theme from The X Files. On Powerful Man, Alex sings about missing a friend who is “going to the pen”, and after tackling the idea of his wrongdoing, concludes that “a brother is a brother and that is that”. Later in the track he pictures himself as the titular character in a dream about “a promised land” with a “big gun” in his hand as violins swell, giving much needed depth to the instrumentation. Following this is album highlight Alina, which is for the most part a duelling harmony between Alex and Emily Yacina, who again features. The repetition of the days of the week by Alex and “Alina” by Yacina creates a dreamlike state which we are allowed to dwell in for most of the runtime of the track, as good an example as any that sometimes simple works best.
+
+Rocket is an exciting next step for an ambitious artist who, after eight albums, is still coming up with new and different ideas. With an album this good, containing both some of his most experimental and catchy songs to date, the future looks bright for (Sandy) Alex G.

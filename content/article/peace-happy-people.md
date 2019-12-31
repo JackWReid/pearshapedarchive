@@ -1,0 +1,27 @@
+---
+title: "Peace - Happy People"
+slug: "peace-happy-people"
+date: "2015-02-09"
+author: "Camilo Oswald"
+rating: "4"
+---
+
+In many ways, Peace had the perfect start for a British indie rock band in the new millennium: a hyper-memorable name with a distinctive frontman, writing energetic and youthful songs about mindless, all-consuming teen infatuation that walked the thin line between melodically catchy and guitar-driven clout. All this, whilst looking cool and being part of that genre which tears up indie discos and headphones alike.
+
+After being hyped across the board due to the sheer audacity of being called Peace and having an album called In Love, they capitalised on it by delivering the romantic, candid album that everyone wanted to hear. With so many crowd-pleasing bangers on their live repertoire, this all translates into a free pass to write what they want from now on, which in this case means producing what is, in many ways, a concept album tackling the issue of self-dissatisfaction.
+
+The record starts with a Calypso sound and cascading guitar lines - throwing us back to the quasi-Tropicalia of Bloodshake and Delicious. They namedrop the 80s and 90s in a tongue-in-cheek reference to the carefree, pre-millennial nostalgia they’ve been accused of perpetrating, but in reality, the first two tracks are ridden with dark lyrics about the state of the world in their verses, juxtaposed against the sunny choruses for effect. Have Peace gone from silly love songs to social commentary in a mere two years?
+
+Thankfully, we immediately get evidence that they are still fun – Lost On Me switches the mood to disco pomp, which is complimented by Doug’s signature guitar work. It’s all about kissing – wonderfully Peace – with a brilliant bridge which is emotive enough to balance the diva-licious strut of the chorus. Perfect Skin has the dumb, love-drunk lyrics that are purposefully saccharine to describe the feeling of total admiration that we came to love in earlier tracks like Lovesick, but dig deeper and you’ll find the same themes that you find throughout the album: dissatisfaction with one’s physical appearance, the admiration of ‘better’ people, even possibly androgyny. After a killer and fuzzy middle eight that sneaks up on you, Harrison muses “Your superiority overtly makes me worry I’m not worthy” and “If I had perfect skin, would I be pure within?”
+
+These themes are nowhere more evident than on title track, Happy People. Musically it’s distant, echoey, and plaintive. He talks about Summer, time passing, and second-guessing whether you were "Even happy back then". Someday serves to restore the despondency set by Happy People. Acoustic guitar-driven (a Peace first), he reassures us that "It’s a lonely life, but only for a moment at a time" – as if to say that there’s always one saving grace: love, the familiar mantra of their wide-eyed debut.
+
+Money wonderfully slaps all the dejection out of us, to tackle materialism in a sexy fashion. We can once again indulge in Harrison Koisser’s delicious diction and in a breakdown that oozes funk. I remember not being fully convinced by this when they released it last Summer, as I had been too in love with In Love to crave anything else other than a copycat Follow Baby or Toxic. But in the context of the album, it gives the song a different type of energy and is infinitely more enjoyable.
+
+It’s followed by latest single, I’m A Girl, which brings awareness to the plight of the skinny-jeaned, lanky indie boy; it’s an attack on machismo and questions society’s expectation of what it is to be masculine, allegedly inspired by Emma Watson’s He For She speech last year (“The creators of man were calm, kind and nice / But nature demands that we fuck, eat and fight!”) He goes on to claim he’s no "red-blooded Aries" (evidence of which we have the contrary in our [recent interview with Peace](http://pearshapedexeter.com/peace-2/) when he showed us his phone) and declares “If we’re living in a man’s world, I’m a girl!” It’s the funnest song on the album and will be absolute mayhem live. Girlpower FTW.
+
+In Under The Moon, Peace ironically show off just how big their song-writing muscles have got, and the maturity is palpable. It encapsulates and even lists all Harry's insecurities one by one – loneliness, ugliness, masculinity. However, it’s the sound of acceptance and the overcoming of one’s complexes, whatever they may be. It may even allude to satisfaction (“What I can do, make you feel it like I do, and be happy living under the moon”).
+
+And just like that, new festival fan-favourite and album closer, World Pleasure, arrives on your headphones as if the entire preceding album didn’t happen, paying no mind to any insecurities whatsoever and sounding so much like Peace circa their Delicious EP. Harrison sounds so confident with his "Talk-rap: what you gonna do about it?" delivery, and proceedings are wrapped up with the most irresistible bassline that harks back to a Stone Roses groove, making their fretting about the ‘too retro’ criticism amusingly contradictory and utterly void (in the most likeable way).
+
+This is how to put out a second album: by not writing a single love song, for which you are celebrated for, and instead opting to challenge issues of discontent with society, the times, life, gender expectation, and your own looks - all whilst pretending to have no fun at all. It’s what no one asked for, but that’s what makes them so cool.

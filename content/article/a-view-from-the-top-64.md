@@ -1,0 +1,13 @@
+---
+title: "A View From The Top #64"
+slug: "a-view-from-the-top-64"
+date: "2016-12-25"
+author: "Chloe Edwards"
+rating: "undefined"
+---
+
+Whilst we’ve been counting down the days to Christmas, electropop trio Clean Bandit have been racking up their weeks at the top of the charts, having also claimed the top spot of the charts in Australia, Germany, Mexico and Israel to name a few – and to showcase its global success. With no sign of Rockabye sales slowing down, the group have secured their seventh week at number one, and have now earned themselves the much sought-after position of Christmas number one.
+
+As we hit the penultimate collection of chart-toppers for the year, perhaps this is a subtle reflection of how the music industry has fared during 2016. With Skepta winning the Mercury Music Prize in September among nominees such as David Bowie, Radiohead and The 1975, it’s clear to see contemporary electropop, RnB and grime are prominent sounds for the moment. Additionally, Rockabye is maybe a light relief after such an unpredictable and often shocking string of events during the last 12 months, and yet there seems to be something unusual about it winning its place at the prime chart position at Christmas, with festive chart toppers in the last five years including charity singles and the odd X-Factor winner. Ultimately, however, the track, which features Sean Paul and Anne-Marie, has proved itself to be another key example of Clean Bandit’s seemingly effortless success at number one singles. A quick rewind to 2014 reminds us of Rather Be, another collaboration for the band which ended the year as the second biggest-selling song of the 2014, and maybe Rockabye is gradually following in its footsteps.
+
+It certainly is a song of contrasts, and one which I can’t help feel splits more opinions than Marmite. The music video and mood of the track itself is a parallel to the current season and its connotations, which again perhaps contributes to its success as a song its listeners can escape to. The lyrics centre around a single mother who hopes for a better future for her baby than hers, and whilst most artists would have made this a sombre ballad, the band inject energy and positivity into the track and make it a feel-good piece. Instrumentally, the steel drums throughout and Grace Chatto’s closing cello notes combine to once again result in a catchy, upbeat track which has evidently caught the attention of listeners with its hip hop infusion. From a trio who met through studying at Cambridge and whose sound blends both dance and classical genres, it’s not surprising that some of their most successful tracks have been those which fuse contrasting genres.

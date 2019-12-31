@@ -1,0 +1,19 @@
+---
+title: "Damien Rice - My Favourite Faded Fantasy"
+slug: "damien-rice-my-favourite-faded-fantasy"
+date: "2014-11-05"
+author: "Jessikah Hope Stenson"
+rating: "3"
+---
+
+Irish singer-songwriter, Damien Rice, has finally completed his third album, My Favourite Faded Fantasy, much to the delight of his ever-so-patient audience. With the passing of eight years since his last record, it’s been practically silent on the release front for Damien Rice. Even so, My Favourite Faded Fantasy only boasts eight songs and one bonus track; a massive tease for such an eagerly anticipated album. I can only speculate that perhaps Damien Rice is confident enough with the small amount of songs on My Favourite Faded Fantasy that we won’t be needing any more. We’ll see.
+
+Embracing and experimenting with a new haunting sound, Rice incorporates electric riffs in contrast to moderate drums. Opening and title track, My Favourite Faded Fantasy, is an eye-opener to “What it all could be” about on this new record – Rice adds instrument upon instrument to create a gentle progression and builds momentum that, in an ideal world, would be maintained throughout the rest of the album. For a Rice album, drums intensify like never before and passionate cries reiterate “I’ve never loved”, unveiling a man pouring his heart and soul into his music. Similarly, the vocal layering in It Takes A Lot To Know A Man is stunningly chilling. The track itself is more like an epic, stretching for nine minutes and combining unfinished lyrics and heart-rending violins to fill the listener with a surge of emotion.
+
+The Greatest Bastard is honest, candid, and brutally authentic. Relying on his traditional acoustic guitar, Rice demonstrates that he can still adapt to his simple style and perform successfully. Following this, I Don’t Want To Change You is an impressive step up from the sound of Rice’s previous albums – a compromise of modernity and Rice’s customary sound. I Don’t Want To Change You could so easily be a Ben Howard or Ed Sheeran song, boasting intelligent riffs and melodies that will capture your attention. What’s more, the steady piano and gracious strings aid and abet in Damien Rice’s criminally beautiful tone. What makes it so criminal? Only that this song will steal all of your time as you’ll never be turning it off.
+
+As the midpoint of the album, Colour Me In is a symphony of faultlessness, displaying Rice’s ever-growing talents to engage and uplift listeners. Contrastingly, in The Box, Rice disappears into his own musical space to the point at which he almost loses the listener; the songs sounds raw to the point of being unfinished. However, the album is somewhat redeemed with Trusty And True: a chorus of voices manipulated effectively, not just with multiple original melodies, but also as complimentary backing, works gorgeously with a combination of male and female vocals. From the simplest sections of the song to the most complex - and the great transition in between - Trusty And True projects all of the qualities of an album in a mere eight minutes.
+
+Finally, Long Long Way encases Rice’s hushed tones into a box of treasure, projecting all that makes this album special – its versatility. Look no further than the orchestra of instruments encompassed in Long Long Way alone; the trumpets in particular give the song an antique tone. Most importantly, the unusual layers and Rice’s sincere vocals make it the perfect conclusion to the album as it truly summarises how My Favourite Faded Fantasy feels like a chaotic collection of Rice’s innermost secrets.
+
+At times, My Favourite Faded Fantasy can feel too cautious and slightly sluggish. Nonetheless, Rice definitely has a talent for creating excellent compositions, developing originality, and manipulating ruthless lyrics into stunning songs - its only flaw is a lack of consistency. My Favourite Faded Fantasy is well worth a listen (or ten).

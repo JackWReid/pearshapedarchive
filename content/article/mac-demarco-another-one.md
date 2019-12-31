@@ -1,0 +1,19 @@
+---
+title: "Mac DeMarco - Another One"
+slug: "mac-demarco-another-one"
+date: "2015-08-07"
+author: "Sam England"
+rating: "5"
+---
+
+Fresh from the breezy shores of Far Rockaway, Mac DeMarco has brought us some equally breezy tunes. Mac DeMarco, if you don’t know, is fast becoming the front running figure in the slacker rock movement. He crafts songs that seem as if they required no effort from him at all, and yet are in fact extremely well written, and sonically high grade. I’ve said this before: it should be deemed blasphemy, or at least against common etiquette to listen to Mac DeMarco when not at least partially horizontal. Mac’s latest instalment Another One is a mini-album that has come only a year after his previous full-length album Salad Days, which saw great critical success.
+
+Because of the short timeframe between releases, one might easily believe that these new songs are afterthoughts, or at least have not been given the proper time and care they might require. You would be wrong on both counts. In terms of style, DeMarco has obviously stuck close to his signature sound that has made him popular thus far, but the actual quality of the song writing has increased dramatically. This isn’t to say his writing skills were poor before; they were excellent, but this time around there’s been an obvious progression in this aspect. You could be forgiven for thinking you’re listening to the greatest hits of some psych-rock legend from the 80s.
+
+Stylistically the most obvious addition is an increase in the prevalence of keyboard instruments. In fact title track Another One relies upon them entirely, with DeMarco putting his guitar aside. Mac DeMarco strictly uses analogue synthesisers, which ensures that the keys have a district tone and don’t sound tacky like a digital keyboard would. This song in particular shows how adept Mac has become at writing ballads that sound like they’re classics already.
+
+Guitars are still the main instrumentation on this release though. For it could almost be said that Mac DeMarco wouldn’t be Mac DeMarco if you can’t hear his distinct jangly, clean guitars being reinforced by his expertly crafted basslines. It seems his guitar skills have improved too. The guitar solos of sorts found on The Way You’d Love Her and Just to Put Me Down demonstrate this most clearly, and provide very infectious sections to both songs. They sound like he’s having fun; the latter song in particular has a vibe of letting loose, with the ridiculously high notes he brings in.
+
+Of course there are times where things sound slightly out of tune, or Mac’s vocals take an unexpected or silly melody, but this is the charm that he holds. It’s intentional; he knows what some people may class as flaws on the record are present, he just doesn’t care. He is not interested in recording a pitch perfect, everything precisely polished chart hit; he’s about writing excellent songs and enjoying himself doing it. If nothing he’s released to date has convinced you of his stellar musicianship, then this mini-LP surely should.
+
+The songs are more diverse than they’ve ever been with some, like Another One, taking the form of an 80s ballad that could honestly be a lost Phil Collins demo tape, or others like I’ve Been Waiting For Her that are quite firmly hinting at the soundscape of surfer rock. They are, however, cohesive, and this is really important to me. We live in the iPod generation, where albums are more and more frequently simply collections of songs, rather than a consistent sonic experience that flows musically and thematically. Mac DeMarco has made one of the latter and I couldn’t thank him enough for it. It is incredibly easy to sit back and listen to this mini-LP in order, in its entirety. It is a perfect album for both vinyl record, and for shuffling on your iTunes.

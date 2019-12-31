@@ -1,0 +1,13 @@
+---
+title: "A View From The Top #57"
+slug: "a-view-from-the-top-57"
+date: "2016-11-06"
+author: "Jude Hammond"
+rating: "undefined"
+---
+
+As a 21 year old loather of all things X Factor, I recognise I am not Little Mix’s target audience. Which is why I am reluctant to lay into Shout Out To My Ex with the same old sneers for its cheesy or repetitive nature. It would be unfair of me to label Little Mix a sham noughties pop group, as would it be frankly childish of me to describe the colour of the mucus I expel when Perrie Edwards’ glossed vocals open the track. So I have decided to focus entirely on the positive side in this column.
+
+Shout Out To My Ex lies at the summit of the UK charts for the third week in a row so Little Mix’s exes must have definitely heard the shout out by now. The track, which also reached 85th in the Namibian charts, promotes the group’s forthcoming LP Glory Days. Everyone’s favourite Meghan, Meghan Trainor, has a song writing credit on the bouncy You Gotta Not, which can only suggest that Trainor had a hand in the influence of Little Mix's new music. The video for Shout Out To My Ex is a rollercoaster journey in which Little Mix drive in their car, stand/sit next to a swimming pool, and dance in a desert. A grey shirted man, presumably the infamous ex, tries to hail a ride from Little Mix. I can only hope he has other travel options as they ignore his pleas. Otherwise Little Mix have left him stranded in a desolate wasteland and the track is given a whole new sinister edge. I would question Little Mix’s moral standpoint; making their heart break is a small crime for being effectively left for dead. Though I realise I am blowing this small detail out of proportion, the instance does exemplify the multi-layered approach Little Mix has in crafting their music and videos alike.
+
+Credit to Little Mix, Shout Out To My Ex offers a joyous solidarity that is necessary for everyone in a break up. Edwards admits that the break up “hurt her,” however one of the other members of Little Mix later says that she’s “over it.” One might question how they can make the transition from being hurt to being over it, and I think the key for Little Mix is “deleting all your pics” and “blocking your number from my phone.” The song offers a coping mechanism for the difficult affair of separation, and celebrates the party attitude of moving on. It has been hard for me in this column not to mention that I despise the track with every fibre of my being. But I must say, Little Mix have produced a pop song with the classic length of three to four minutes, consisting of all the technical components required to be considered music.

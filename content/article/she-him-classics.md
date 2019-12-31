@@ -1,0 +1,23 @@
+---
+title: "She & Him - Classics"
+slug: "she-him-classics"
+date: "2014-12-02"
+author: "Jed Fletcher"
+rating: "3.5"
+---
+
+Recently impressed by the uber-talented Marion Cotillard’s newly released single, Snapshot In LA, I realised that I’d let Zooey Deschanel’s musical ventures with She & Him slip by. Previously undetected by my admittedly broken radar, her latest album with She & Him, Classics, has just been released. What is it about great actresses and insisting on finding new ways into my mind?
+
+In 2006, Deschanel and M. Ward of She & Him were tasked with performing a duet for the end credits of the film, Go-Getter. Their musical chemistry and complimentary styles left them with no choice but to elope into the savage world of recording together – or at least that’s how I like to imagine it. It took the band two years to release Volume 1. A couple of years later, Volume 2 was released and proved to be the partnership’s most successful enterprise thus far, reaching Number 6 in the US charts – quite a feat for an alt-folk album.
+
+A Christmas album and a slightly less adored third Volume later, She & Him are back with Classics, a deviation from their usual track-listing, populated with Deschanel’s original work. Instead, the pair have taken on the daunting challenge of covering thirteen “classics” from the golden age of rhythm and blues.
+
+The opener, Stars Fell On Alabama, gave me a quite concerning notion that – listening to the album for the first time whilst in bed – I may never be convinced to leave the comfort of my covers. However, the following pair of songs, Oh No, Not My Baby and It’s Not For Me To Say, brought me out of this clinically relaxed state, back into the regular world of same-y She & Him tracks – the repetitive lyrics and progression-lacking instrumentals of the selected covers have none of the provocative qualities of the first track. That’s not to say that the album didn’t totally live up to the opening song.
+
+If there were a ‘poster-track’ for the album, it would be Stay Awhile which bursts out of nowhere as the fourth listing. Stay Awhile is what I love about She & Him with a little bit extra; it has Deschanel’s deep, silky voice at its best but with an awesome guitar backing from Ward which blends in and out of a wonderfully subtle backdrop of woodwind and brass. Unfortunately, This Girl’s In Love With You, which comes next on the album, is not an ideal follower – it’s a good song, similar to Stars Fell On Alabama, but the low-key ambiance is too contrasted to its precedent and I was left more impacted by the switch in style than the quality of the song itself.
+
+Unfortunately, the songs that Deschanel and Ward have focused on in Classics always make me lose both enthusiasm and concentration as I reach the twenty-minute mark. At the halfway stage of this album, we can see She & Him combating this with their enchanting pre-released single, Time After Time, and lesser-known track, She (this is the only track where M. Ward sings the lead vocals). Personally, though I liked both songs, I think that it may have been worth swapping Time After Time with Stay Awhile, as the latter is comparatively such a bombshell that it may have been the only way to grab back the listener’s wilting attention at this stage.
+
+Finishing Classics, the listener hits a beautiful sequence of songs. I’ll Never Be Free, though predictable, is appropriately typical of their style, signifying the beginning of the end of the gondola ride that is their latest oeuvre. A duet follows this and leads into track thirteen, another possible ‘poster-track’: a cover of Vera Lynn’s We’ll Meet Again. Zooey’s pacier rendition over the top of Ward’s backing vocals strikes upon a fantastic playfulness intertwined with an exquisite sense of finality to end the album – if a song could be the bow at the end of a West End musical, this would be it.
+
+When one stumbles across an album composed solely of covers, it is easy to look at the track list with a wrinkled nose and pass it off as uninventive or not worth your time. With Classics, however, I’m left with a strong empathy for Zooey Deschanel and Matthew Ward; how can they ever choose between recording their original tracks or beautiful covers? The orchestral accompaniment to Deschanel’s low voice emits the perfect antique feel, keeping the songs classic, while the She & Him style of folk instrumental emphasis and super smooth vocals knocks each track out of the park. If an intriguing new album is what you crave this Winter, stay well away from Classics, but if you want to sit back and enjoy the warm atmosphere of the holidays, then She & Him have just the treat for you this December.

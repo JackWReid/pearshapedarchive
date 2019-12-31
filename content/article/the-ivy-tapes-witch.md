@@ -1,0 +1,19 @@
+---
+title: "The Ivy Tapes - Witch"
+slug: "the-ivy-tapes-witch"
+date: "2017-09-29"
+author: "Liam Hill"
+rating: "3.5"
+---
+
+Bandcamp is a haven for rising talent, with many artists finding their ground and also many retrospectively establishing their independence on the platform - take Amanda Palmer for example. The Ivy Tapes are one of the latest to present themselves to the world, with support from Supermarine Music, a “start up independent record label set up by three music loving friends”. Comprised of singer-songwriter Eve Jarman and multi-instrumentalist and composer George Stamp, The Ivy Tapes may be the creative output of two musicians, but the result is rich and generally well developed.
+
+On their debut release, The Ivy Tapes offer three songs on their EP, comprising of Don’t You Give Up, Sugar and The Fall. From the artwork and title alone, my expectation was that of something slightly heavier than that of the delicate and raw outcome, though this is not an expression of disappointment. The introductory track, and the whole release for that matter, sets an optimistic foundation for The Ivy Tapes. Opening with an isolated acoustic guitar, shortly greeted with a Patti Smith-esque vocal and tambourine, there is a degree of pleasant simplicity to the Don’t You Give Up. This isn’t at all meant in derogatory terms, take Let It Be or Wonderwall for example, both songs which have intrinsically simple layers which are beautifully crafted.
+
+Don’t You Give Up, a song of reassurance, tells Sally to “remember the good times” and explains how “you think you’re better off dead, it’s all in your head, you’re feeling deranged.” But lead vocalist Eve’s encouraging tone provides for even greater support; not only is she telling you not to give up, it feels genuine and comforting. Eve doesn’t sound scared or at the end of the road, so nor should we, or Sally.
+
+Sugar, the second of three tracks, follows a similar construction. A shimmering acoustic guitar supporting the here more delicate vocals, though this time finding decoration with a harpsichord inspired riff. Later harmonies are also a welcomed addition and lead to me notice, that every time I listened to the track, I found something I hadn’t the previous listen. Initially I had only picked up and focused on the harmonise I assume Eve produces of herself in mixing. The second time, the deep and bassy backing vocals on George became more noticeable, whilst the third listen somehow brought the background keys to the foreground. Though lyrically and vocally Don’t You Give Up is more engaging, Sugar is certainly more interesting and I’ve found myself returning to Sugar out of curiosity.
+
+For me, the weakest of the three is the final track The Fall, though when attempting to view this through an objective lens, there is no factor which is inherently worse or less-developed on this track. If anything, the guitar layers evoke the greatest emotion on The Fall out of all three tracks, yet unfortunately, for me Eve’s vocal is also weakest on this track. Whilst rousing emotion, there is a feeling of nervousness that sounds a little like a lack of confidence or insecurity, which if is the case, shouldn’t be, as the first two tracks establish the quality of her voice. I fear this comes across as disingenuous as to the consistent quality across all three tracks, but personally I prefer the first two.
+
+It should be remembered that this is a release written, performed, mixed and produced solely by Eve, George and Ross (who plays the keys). And seeing’s this is an “unprofessional” mix, the end result is surprisingly polished. I have good expectations for The Ivy Tapes and await more content, as well as wider recognition for them. In such a competitive market, there is a gap for The Ivy Tapes which, following this release, they deserve to fill.

@@ -1,0 +1,29 @@
+---
+title: "69 Love Songs #4"
+slug: "69-love-songs-4"
+date: "2016-07-22"
+author: "Oliver Rose"
+rating: "undefined"
+---
+
+_Photo: Elliott Smith_
+
+_Credit: [The Mezzanine Music](https://themezzaninemusic.com/2014/06/29/xo-by-elliott-smith/))_
+
+I’ve got three pretty sad songs about love lined up for you today, so handkerchiefs at the ready... This week’s song’s aren’t all in the same key, but the start and end chords do line up (sort of), so, as ever, do all three in a row for a specially curated listen.
+
+**1\. Billy Bragg – Walk Away Renée**
+
+![billy-bragg-levi-stubbs-tears-1986-4](http://pearshapedexeter.com/wp-content/uploads/2016/07/billy-bragg-levi-stubbs-tears-1986-4-300x300.jpg)
+
+In 1986, Billy Bragg released the utterly tragic ballad, Levi Stubb’s Tears. A harrowing story about growing up, the sparse, scratchy instrumentation made the song a stranger in the charts, made odder still by the sadly acerbic lyric, whose depressing narrative of domestic abuse and disenfranchisement concludes with the ephemerally beatific image of a Four Tops compilation cassette. For its B-side, Bragg would pay homage to Stubb’s band further, with an alternate take on the classic Four Tops number, Walk Away Renée. The Barking Bard firmly stamps his own brand of modern heartache on the song, replacing the timeless vocal melody of the original with a spoken word passage about an adolescent love. The childishness of the narrative is excellently rendered through wordplay games and acute observations about life in love; it’s a truly superb work of poetry, and Bragg’s uncompromising Essex accent gives it a very real flavour. That’s only one half of things however: The Smiths’ Johnny Marr provides instrumentation here, and it’s absolutely sublime. Marr’s fingerpicked  acoustic guitar arrangement of the original song is gently reverbed and heart-wrenchingly jangly. Such is the incredible degree of talent displayed on this track that it’s hard to work out which part is most beautiful.
+
+**2\. Elliott Smith – Waltz #2 ** ![elliott-smith-waltz-2-xo-dreamworks](http://pearshapedexeter.com/wp-content/uploads/2016/07/elliott-smith-waltz-2-xo-dreamworks-295x300.jpg) 
+
+Since 1987, Dutch music outlet 2 Meter Sessies  has recorded sessions with a variety of musicians: some famous; some less so; most of them American. They do a fantastic job of recording; the sessions are filmed in extremely high quality and the audio is very crisp. The recordings first came to my attention when I watched Elliott Smith (pictured) perform [Waltz #2](https://www.youtube.com/watch?v=a13BLo-OhJo) during his November 29 session, in 1998. In fact, I knew very little about Smith when I first saw the film; in many ways, 2 Meter also introduced me to him. This session is peculiar, insomuch as it’s cut short when Smith gives up on the song, about halfway through. He’s utterly beaten by it, and it’s incredibly depressing to watch. In the interview after, he needlessly apologises, convinced that his poor performance was reason enough to stop – not that you’d ever believe it watching him. Sincere, poetic and touching, this rendition of Waltz #2 is particularly special, but the song in all its forms is just so beautiful. I shan’t ruin the lyric for you with any analysis; it’s all right there, in the raw, and you should feel it for yourself, but wow – it’s a special thing indeed, brimming unusually with the usual (unrequited love, regret, undying affection). Rarely does someone come across with such conviction, and such agony without sounding contrived or theatrical. In light of his mysterious death aged only 34, there’s something almost unbearably sad about the song. The 2 Meter session highlights this, as you’re faced with this inescapable fact: everything wonderful you can see and hear, from the inflections in the playing to the wisp of Smith’s cracked voice, is temporary.
+
+**3\. Susanne Sundfør – Memorial** ![Susanne_Sundfor-Ten_Love_Songs-Frontal](http://pearshapedexeter.com/wp-content/uploads/2016/07/Susanne_Sundfor-Ten_Love_Songs-Frontal-300x300.jpg) 
+
+Similarly to Stephin Merritt’s 69 Love Songs, Susanne Sundfør’s Ten Love Songs had very little to do with the love song as we know it. Almost every song here is mired in melancholy poetry and underscored with gorgeously produced synthesisers; I’ve not heard an electronic record released this century that could compete with the synthpop mastery of this album. Memorial then, is the record’s centrepiece, a ten-minute megalith, whose lengthy, rhapsodic structure is but one of its truly epic facets; massively orchestral, lyrically poignant and richly dynamic, Memorial is a magical song, in conception and realisation. Sundfør’s voice, arguably one of the finest in contemporary music, has enormous range, and shoots between the piercingly high to the solemnly deep. Even this grand feat is belittled by the skill of her song-writing. Some of the lyrics here are profoundly mysterious in their articulation of feminist principles: there appears to be a bold allusion to abuse through the removal of a dress and, despite the operatic breadth of everything, Sundfør still has the audacity to describe love as purely overrated. Unbelievably, she also manages to convey in her second language what many would struggle to communicate in their first. Similarly awe-inspiring is the honesty of these words; like Elliott Smith on Waltz #2 (XO), Sundfør’s emotions never sound forced and the music, theatrically gigantic as it is, never seems as though it’s trying too hard. Memorial is a masterstroke in taking yourself very seriously, but without causing offence. That it’s also dressed in such sonorous, electronic textures is, for me at least, the cherry on top. I would also definitely recommend hearing this in the context of the full album; it seems all the more cosmically significant that way.
+
+_Listen to the PearShaped 69 Love Songs playlist below._

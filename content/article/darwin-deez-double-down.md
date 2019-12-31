@@ -1,0 +1,19 @@
+---
+title: "Darwin Deez - Double Down"
+slug: "darwin-deez-double-down"
+date: "2015-09-18"
+author: "Sam England"
+rating: "4"
+---
+
+Darwin Deez, the indie rock band fronted by the eponymous Darwin Smith are well known to most if not by name, then song. Their 2010 self-titled debut, which featured many songs heavily utilised in the soundtracks of Skins-esque TV programmes, saw the band shoot to great success in the UK, despite being based out of New York. Since then they’ve released one other album, which did relatively well too, and now they’ve presented their third to the world. This latest release is titled Double Down and demonstrates that oh-so-hard to pinpoint balance between demonstrating a progression from previous work whilst not alienating existing fans.
+
+Since their debut, Darwin Deez have always held the position of being a pillar in the jangly indie rock scene that took the UK by storm at the beginning of the decade. They of course share this burden with the likes of Vampire Weekend, Two Door Cinema Club, and The Wombats, but have also always maintained some distance from these more commercially successful acts stylistically. Darwin Deez are famed for their much higher levels of stylistic eccentricity than their contemporaries, and this has certainly remained the case for Double Down. The record is incredibly quirky and all around much more fun and interesting than most other indie rock releases emerging nowadays.
+
+The band experiment to a great extent with different instrumentation and the likes, with this album even including samples of baby laughter, and high pitch vocal modulation. These different, unexpected production decisions scattered throughout the tracks makes the whole listening experience thoroughly entertaining and prevents it from becoming monotonous.
+
+Another aspect of their music that set Darwin Deez apart from the rest of the bunch was their active choice to opt for lo-fi production techniques and overall sound. Many of their older songs had a lot of sonic space at certain frequencies and were equally overloaded on others, a recipe for tracks to sound DIY. I must admit, this attribute has largely been lost on this latest release, with almost all of the songs sounding incredibly full, balanced and polished. Of course, in a traditional sense this is exactly what music is supposed to sound like.
+
+Darwin Smith is clearly a bit of a genius when it comes to song-writing in general, but his talents are probably strongest when he’s writing hooks. I’m not talking about catchy choruses that you can’t stop singing for days (although he is pretty snazzy at crafting these too); I’m talking about the short musical phrases, vocal or guitar driven, that he disperses throughout his songs that you can become addicted to. They are a kind of fractal soundbite that infects your brain, and makes you listen to that song all over again just to hear that two-second section, and satisfy your craving. It’s somewhat fitting that the song containing the most of these musical parasites is called Last Cigarette. The guitar lick in The Mess She Made, and parts of the Right When It Rains chorus are other stellar examples of this wizardry.
+
+Overall, Double Down is a really fun record, with quirky instrumentation and lyricism that examines a plethora of unconventional themes. I would say there’s a lack of ebb and flow throughout the album, with there being very little lean away from the sun-pop mood and fast-paced tradition of indie rock, and this can become intense at times. The songs individually are also perhaps less memorable than those on their debut, although this was also the case for their sophomore effort, and I definitely prefer this one. All of these comments have debatable status as flaws, however. They certainly don’t prevent this album from being pretty great.

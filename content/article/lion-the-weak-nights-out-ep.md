@@ -1,0 +1,21 @@
+---
+title: "Lion The Weak - Nights Out EP"
+slug: "lion-the-weak-nights-out-ep"
+date: "2014-03-17"
+author: "Camilo Oswald"
+rating: "3.5"
+---
+
+As a newcomer to Exeter, I was initially quite pessimistic at the prospect of discovering a thriving indie scene. Having basked all of 2013 in the sun-kissed 90s music revival, I arrived with a keen set of ears and found only bass drops. Blame house music and Bristol’s cultural patronage, or the fact that after Freshers’, if you wanted to meet any heterogenic people, you were told to go to Cellar Door. After listening to Lion The Weak, turns out I was looking in all the wrong places. I actually overheard two indie boys (that’s relative to Exeter Uni) in my lecture talking about how they were "playing Cavern on Wednesday". If I hadn’t had 2,000 words due for Mr. E-bart the next afternoon, I would’ve loved to go.
+
+In the first few seconds of Nights Out, we hear what appears to be the lovechild between a synthesizer and a harpsichord - a sound not heard in their previous EP. Its predecessor, Lullabies Of Summertime EP, sported minimalistic and clear guitar lines, layered and repetitive in a way that became ubiquitous after 2008. Falling was a delicious slice of tropical guitar strumming versus afrobeat à la Vampire Weekend; a summery and happy track complete with "Hey!"s. We Belong Together had pristine guitar, delayed and echoey. Upon first listen it suffered slightly from mild XX syndrome, but made a full recovery with its genuine heart.
+
+As we listen to the first track of their latest EP, Wasted Words, the song follows a familiar path that incorporates almost all aspects of their last EP but with a much fuller sound. A bouncing bassline, funky guitar strumming, and a gleeful melody employing the pentatonic scale gives it a carefree, flirty summer vibe. Truthfully, if you’ve been well-versed in indie for the past five years, you could easily get tired of this vibe by the second verse if it’s abused, as so many Brooklyn bands have come to realise when they discovered they could write easy summer music. But Lion The Weak immediately make the song more interesting once it gets to the chorus. I can’t pin down why, but something about the vocals in the chorus reminds me of Delphic darkness. It gets deeper and dare I say it, catchy, with neat use of the refrain "We are alive, we are A-". A brilliant start, with enough game to capture the attention of the accidental Soundcloud listener.
+
+Fell For You is where it gets scarily 80s. Disclaimer: I’m quite biased against it. I believe the 80s is a time in culture and fashion we should all forget about and all good music was a result of an aversion to the glossy trends in popular music (see: The Smiths' debut vs. Hatful Of Hollow). The bassline and synth are a discount Blue Monday as they elope together to do the 118-118 jog down the street. Meanwhile the low, sexy, spoken vocals are utter overkill. It’s so shiny and 80s; it’s like 2009 all over again.
+
+Thankfully Lion The Weak are good, and after that little adventure the song picks up 40 seconds in with a Franz Ferdinand build up and settles into an irresistible beat with guitar call and response over it. Once the vocals come back in, I’m slightly hooked. I can even overlook the fact that they go back to Blue Monday (but not forgive it entirely). Overall, Fell for You is a neat ode to New Wave - while this is something I enjoy, for another it may be a cup of tea with three sugars.
+
+The true highlight of the EP is To Dahlia. The vocals are luscious and effortless, and there’s a brilliant chemistry between the instruments, all complimenting a feeling of fruitlessness, seclusion, yet titillating and palpable anticipation. "Been thinking about you all week" truly was stuck in my head for a good half hour. It’s awash with dark, Foals-y guitar lines, cascading beautifully and ominously, with a fuzzy guitar solo to boot that carries all the way through to the last chorus.
+
+I must compliment the bass playing on this EP as it’s always consistent with the mood, sensitive and respectful of the other instruments and overstated when it needs to be. The relationship between the guitars shows promise and Jack Shephard’s voice seems to like experimenting on each new song. I look forward to catching their next gig.

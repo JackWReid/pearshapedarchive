@@ -1,0 +1,19 @@
+---
+title: "Leona Lewis - I Am"
+slug: "leona-lewis-i-am"
+date: "2015-09-11"
+author: "Kate Giff"
+rating: "2"
+---
+
+Before there was Olly Murs, when One Direction were still five average schoolboys, before Alexandra Burke had even heard Hallelujah, there was Leona Lewis. She won the X Factor in 2006, and her winner’s single (a cover of Kelly Clarkson’s A Moment Like This) stayed at number one for a whopping four weeks, making her the star at the top of Simon Cowell’s diamond- encrusted Christmas tree. Nine years later, Leona is back with a brand new album (her fifth, including her Christmas album) in which she turns introspectively to her worth.
+
+Looking at the tracklist, it’s obvious from songs I Am, Power, and Essence Of Me that Leona and her writers have decided this album is going to be a celebration of her independence and womanly confidence. In many ways it succeeds in this; I was pleasantly surprised with some of the self confident, self-love anthems such as those mentioned before. My main problem with the album was that these tracks were dispersed amongst exactly the kind of songs you think of when you hear “Leona Lewis”: lots of pianos and impossibly high vocal runs. I don’t want to be unfair to Leona, who has seen a certain amount of success from these songs, meaning there must be a market for them. I just feel that the effort made with some of the skillfully crafted and more original tracks is wasted on lazy lyrics and borderline shrieking. Thunder, Fire Under My Feet, and Power are juxtaposed with I Got You and Thank You, and while there’s nothing wrong with a good old-fashioned pop ballad, here it translates into a lack of consistency that I think lets the album down.
+
+Some of the songs are ok, but none of them are great. Fire Under My Feet, for example, has a catchy beat and fierce drums, but ultimately it sounds like a poor man’s Rolling In The Deep.  In fact, I tried it out and you can sing one directly over the top of the other and they are incredibly similar (but Adele’s is better). My favourite on the album is Another Love Song. The title of this suggests that Lewis has a sense of self-awareness of her track history, which she addresses in the song:
+
+> “Never thought about another love song But I can’t keep on fighting the truth I love you.”
+
+While these lyrics are the usual sickly sweet pop ballad material that makes me dislike artists like Lewis, the fact that they’re set against what sounds almost like a 90s club tune changes it up and exceeds expectations. It’s actually quite funky, and I would probably dance to it at the next Magic Hatstand without thinking it was a Leona Lewis track. I Got You isn’t awful, if a bit shrill. Ladders almost achieves something, too. Along with the classic syncopated drumbeat I recognise from past Lewis singles, there’s another level of production that is - dare I say it - reminiscent of Disclosure and the likes. Again, however, it just doesn’t go far enough, with the very on-trend club beat being overtaken by the dated drum beat and lacklustre lyrics (ladders take her higher). This track, therefore, is symptomatic of the album as a whole: almost good, but not quite.
+
+All in all this is not a terrible album, but it’s not one I would listen to again. In a way, it’s the fact that it’s not terrible is its downfall; it’s just a bit bland and not particularly memorable, a bit like Leona Lewis herself.  That being said, it may prove incredibly popular (I predict it will be most successful with mums driving to work), as this kind of music has been before. To be honest, I don’t think Lewis will ever come out with a song better than Bleeding Love, which was the perfect song for the mid-noughties.  Her attempt to modernise her image and sound, while admirable and at times almost successful, is all just a bit Emeli Sandé to me (which is not a compliment). Still, her high notes are very impressive.

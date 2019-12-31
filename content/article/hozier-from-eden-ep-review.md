@@ -1,0 +1,15 @@
+---
+title: "Hozier - From Eden"
+slug: "hozier-from-eden-ep-review"
+date: "2014-03-31"
+author: "James Hitchings-Hales"
+rating: "4"
+---
+
+Right now, everybody is in the process of deciding which summer festival to invest their student loan in. Will it be the expensively free love of Glastonbury? The supermarket cider of T In The Park? If, like me, your purse strings have somehow tightened since that last 21st you probably shouldn’t have gone to, then maybe you’re looking at one of the smaller, yet inarguably cooler, festivals. As Shakira once said, hipsters don’t lie. Or something like that. Think Greenman, Kendall Calling, Truck. But desist immediately! Because I’m making your mind up for you - we’re all going on a merry journey to Barn On The Farm. Why? No, not because it rhymes (although it is to my eternal disappointment that more festivals don’t have names that rhyme). So, I hear you again, why? Because, Hozier.
+
+You may have already heard of Hozier’s viral title track from his debut EP, Take Me To Church. If you haven’t, don’t Google it. The naughty internet Christians will literally direct you to your nearest Jesus store. Call it JStor for short. I’ll get my coat. Anyway, his follow up effort, From Eden, follows a similar pattern of soulful, blues-based folk music that grips you from the very first listen. The title track, From Eden, is led affectionately by the hand with a sweet guitar lick, as Hozier’s husky George Ezra-esque voice softly croons to the listener. I chose it as one of my tracks of the week for the [Pearshaped Listening Post](http://pearshapedexeter.com/post/77701630818/post-four-monday-24th-february-2014-hello-fond) back in February, and it retains its integrity on multiple listens.
+
+The second track, Work Song, rests in the very roots of Hozier’s musical identity. Spacious, emphatic hand clapping might feel too obvious, and the title is pretty terrible. But it indisputably feels natural, and once again exhibits Hozier’s flawless grasp of poetic realism in his lyrics: “She gives me toothaches just from kissing me.” But then Arsonist’s Lullaby instantly marks a dark descent into the essential soul of the album. It is dramatic, atmospheric, burning with a gritty tension that opens a stained window straight into Hozier’s songwriting: “Don’t ever tame your demons, but always keep them on a leash.” You get the feeling that the “voices” Hozier heard as a child sound a lot like the guitar riff that fuzzes around the military style percussion.
+
+But walking away from the EP for the first time, I was drawn immediately back by the haunting climatic track, To Be Alone. You cannot escape the incredible blues guitar that mimics the lead vocal like a succubus. It’s intoxicating. Honestly, it feels like it belongs to a totally different era, alongside Robert Johnson in the Delta Blues. Everything about To Be Alone reflects bare, tender human nature that Hozier is not afraid to explore. All in all, From Eden is an EP that strikes to the heart of human flaws that somehow verges on being damn near perfect itself. And did I mention that he’s Irish?

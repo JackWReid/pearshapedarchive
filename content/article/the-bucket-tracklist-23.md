@@ -1,0 +1,23 @@
+---
+title: "The Bucket Tracklist #23"
+slug: "the-bucket-tracklist-23"
+date: "2016-03-23"
+author: "Kate Giff"
+rating: "undefined"
+---
+
+As the weather has taken a turn for the brighter, and we’re officially in the first days of spring (enter Noah and the Whale reference here), my mind has been drifting from English Literature onto happier times. More specifically, I’ve been daydreaming about festivals of the past and future, and some of the best people I’ve seen at them. One act that I remember being pretty amazing at Reading Festival many moons ago (and someone I’m excited about seeing again this summer) is Florence And The Machine. When the term is drawing to a close, I often find myself bathing my ears in the familiar, and for me this is what Florence’s first album Lungs represents. It reminds me of sitting in the local park in summer, trying to memorise the lyrics to Cosmic Love and thinking it was the most genius analogy ever. All these years on, I have to admit that I still think this album is something special.
+
+Lungs is one of those albums that defies a strict genre, instead pulling together strands of different influences to weave a masterpiece. The songs on this album are often busy tracks, filled with layer upon layer of different instruments and vocals. While in some cases this can be almost exhausting, in Lungs these heavier tracks like Dog Days Are Over and Rabbit Heart (Raise it Up) are interspersed with slower, simpler tracks like I’m Not Calling You A Liar, or My Boy Builds Coffins. The latter track is also representative of the refreshing nature of Florence’s subject matter. I don’t think there are many artists who would come up with songs like this, or pull them off quite as well.  
+
+Throughout the record it is lead singer (and face of the group) Florence Welch’s voice that draws the most attention. While the music is intricately layered, her vocals seem to cut through each tier, sometimes sharp edged, and always crystal clear. In tracks like Between Two Lungs the full range of her voice is shown. In one part of this song, it sounds as if an instrument is being played, until the next note when we realise it’s actually her voice sounding stronger than voices usually do. While it works well in the softer songs like Falling, in my opinion her voice is at its best in the exuberant and exultant tracks like Dog Days where she sounds like she’s celebrating in both tone and lyrics.
+
+Perhaps part of the reason I find this album so comforting is that the lyrics depict a rounded view of youth. In Hurricane Drunk, for example, Welch describes seeing an ex lover looking at another girl, using the image of a hurricane to describe how she’s going out to "drink herself to death". The middle eight:
+
+> "I hope that you see me, cause I’m staring at you, But when you look over you look right through. And you lean and kiss her on the head, And I’ve never felt so alive and so dead."
+
+encapsulates the common urge to drink yourself into oblivion when faced with something like that. While the lyrics often resonate with a young audience, however, there is something more complicated happening. In Howl, for example, Welch tells a classic love story with a gothic twist. She represents her urge for someone by likening herself to an animal who wants to "drag my teeth across your chest to taste your beating heart". This is the perfect example of what separates her from artists you would assume she is similar to. Through an obvious enthusiasm for poetic lyricism, she relates every story through an unexpected image.
+
+Howl is also an example of how Florence And The Machine’s music reflects the lyrics. The animalistic, primal urge she describes is reflected in the hurried, drum heavy instrumental. High pitched strings are added to layers of voice and percussion to create a sense of urgency. In Drumming Song, the percussion is also heavy, and as Welch sings about the "drumming song inside my head that starts when you’re around", we get to hear it, too.
+
+All in all, this album for me represents a simpler time, but the music is not simple at all. Instead, the whole record is a carefully crafted and really quite complicated creation, switching from classic analogies to talking about coffins in a heartbeat. Throughout, Florence Welch’s voice singles her out from her contemporaries, and is something that still makes the group special today. In my opinion, this album is by far the best Florence and the Machine record, and offers a lot for fans of all different types of music. Overall, it’s an interesting and intricate album for young teenage girls, young adults and pretty much everyone else, too.

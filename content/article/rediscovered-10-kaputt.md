@@ -1,0 +1,21 @@
+---
+title: "Rediscovered #10: Kaputt"
+slug: "rediscovered-10-kaputt"
+date: "2015-05-31"
+author: "Dominic Woodcock"
+rating: "undefined"
+---
+
+Destroyer, a hard-edged, one-word mission statement, sounds like it ought to be the name of an early metal band, but the connotations of the word are actually completely incongruous with the group’s music. The project is centred on Dan Bejar, a well-kempt Canadian. It is often misconstrued as his solo work because of his revolving door of collaborators. In reality, the music is extremely collaborative and certain members of the band (namely John Collins and Scott Morgan) have played their part across successive Destroyer albums.
+
+None of this seems to take away from the perception that Destroyer is Bejar’s pet project, and he is undeniably the heart of the group. This perception likely exists because of his more high-profile work in The New Pornographers, but Destroyer is far from a minor side-project. In fact, Bejar was making music under the moniker before the New Pornographers even put out an album. His work in these two groups, as well as Swan Lake, means he is remarkably prolific: years simply do not go by without some new release from Bejar, and there are often two.
+
+Destroyer have a reputation for an ever-evolving sound across albums such as 2001’s Streethawk: A Seduction and 2008’s Destroyer’s Rubies, but Kaputt marked a more decisive departure for the group. Whereas the band’s previous albums had more or less fitted under the umbrella of indie rock, Kaputt incorporates elements of soft rock, jazz, and disco. The album is uninhibited homage to the cheesy sounds of the eighties, perfectly recalling a past decade by reinterpreting its most common and – in the 2010s – its least cool tropes.
+
+The title track perfectly encapsulates this aim. With loose saxophone, drum machine beats and washy synths, Kaputt feels as though as it was designed to soundtrack a journey through eighties excess. Bejar’s breathy vocals reference Smash Hits, NME, and Melody Maker, magazines which were at their peak in the eighties. Much of the time, though, the lyrics feel incidental. That’s not an insult to the lyrics, but they are largely imprecise sketches, rather than being vital to the whole. The atmosphere of the track is what shines through, and that is the case for the much of the album.
+
+This is especially the case for the two long form tracks on the album: Suicide Demo For Kara Walker and Bay Of Pigs. Ethereal electronic ambience burbles in the background for the entire album, mostly providing a backdrop to Bejar’s idiosyncrasies and soaring saxophone, but it plays a central role in these longer songs. On Suicide Demo For Kara Walker, a two-minute intro unfolds into a mellifluous drone of synth fog, with occasional piano notes striking a path through the haze. Other instrumentation abounds too, as it uses pan pipes for its hook, and incorporates a soaring saxophone solo as its outro.
+
+This emphasis on atmosphere isn’t to say there aren’t moments of lyrical insight, but these are self-contained brief moments. For example, Bejar quips “Fool child, you’re never gonna make it / New York City just wants to see you naked”, presumably riffing on the hopes and dreams of aspiring musicians and actors. Most of the time, though, the best lines of the album are made great because of their delivery rather than the words themselves. Bejar’s enigmatic voice has a conversational quality that always feels as though he is holding something back, and it can breathe individuality into any line. The line “Magnolia’s a girl, her heart’s made of wood / As apocalypses go, that’s pretty good” seems like nonsense on paper, but becomes enticing when Bejar sings it.
+
+Kaputt is a gorgeous album, one which exists in an entirely different sphere to most music in the 2010s. Despite the fact that disco, soft jazz, and cheesy synths were deeply uncool when the album came out, Bejar perfectly created his vision of sumptuous homage to the eighties. Destroyer’s new album, Poison Season, emerges later this year and from the single it seems that the band has already evolved past their Kaputt sound, but it is likely to remain their boldest and most fun achievement.

@@ -1,0 +1,21 @@
+---
+title: "Lewis Watson - Midnight"
+slug: "lewis-watson-midnight"
+date: "2017-03-24"
+author: "Ellie Turner"
+rating: "5"
+---
+
+I’ve been a big fan of Lewis Watson for the longest time. The acoustic guitar, the beautiful lyrics and the crisp, gentle vocals all create what can only be described as an incredible listening experience. The singer-songwriter genre might be over-filled nowadays, but Watson manages to stand out with the way he wears his heart on his sleeve and pours all of his emotions into his music. You’ll never meet a nicer guy in the music business, either – Watson is humble and funny, with a genuine passion for his work.
+
+Midnight is Watson’s second album, and his first to be released with his new label, Cooking Vinyl. When discussing the album [with PearShaped](http://pearshapedexeter.com/lewis-watson/), Watson explained that this label change meant that “There were no unwanted outside influences, it was just me and my friends in a room for three weeks making an album. I think it’s quite a step up from The Morning, not just musically but lyrically as well.” All of this is made clear from the second the opening track, Maybe We’re Home, begins. We are instantly treated to an edgier, almost darker sound, featuring a haunting electric guitar riff and heavier drum beats. Both Watson’s sound and his vocals are more confident on this record: gone are the hushed tones and sense of uncertainty. This confidence is carried through to the end of the track, which ends abruptly and with conviction.
+
+Two songs in, and it’s clear that Watson wasn’t lying when he described Midnight as a “step up” from his previous release. There’s obvious progression in almost every aspect of the music: the sound itself, the combination of instruments, the lyrics and all of the technicalities. Little Light is as dramatic as the album opener, focusing on the keys and guitar. Watson’s voice sounds sincere and convincing; the emotion is captivating. Again, the ending to Little Light is particularly brilliant, showcasing Watson’s impressive attention to detail as the song builds up the backing vocals and instrumentals before expertly fading out. It seems as though he has really hit his stride.
+
+If you’re new to Lewis Watson and want to listen to a direct comparison between this new and old sound, take a look at the demo of La Song (featured on the deluxe version of The Morning) and the version produced for Midnight. You’ll notice straight away how much more electronic and developed the new version is, featuring synth-style sounds and a consistent beat instead of the classic acoustic guitar. Both the demo and the official version have their strengths, but this latest release fits in really well with the rest of the album and arguably sees Watson stretch outside of his comfort zone even more.
+
+Other album highlights include Run (the track which is most similar to his previous releases) and Where The Water Meets The Mountains, which both include what are now some of my favourite Lewis Watson lyrics ever. Elsewhere, Lucy Rose features on Slumber. Their vocals work together beautifully, and upon hearing it I’m surprised the two haven’t worked together sooner. Watson has a knack for picking the perfect people to work with – just listen to his cover of Droplets featuring Gabrielle Aplin, or Colourblind including Hudson Taylor.
+
+If I _had_ to have one negative thing to say about the album, it would perhaps be the lack of variety. Each song is quite similar – but, if you’re a fan of Lewis Watson (as I clearly am) and the singer-songwriter genre, this isn’t necessarily a bad thing at all. Watson has showcased a great new sound across the album as a whole and packaged it together perfectly cohesively.
+
+I could honestly listen to this album again and again; every aspect of it is completely enchanting. It gets even more magical when you think that the album has finished but you’re treated to a hidden track, Midnight. Some might call it cliché, but I think it works. Everything about this album just _works_. If you haven’t listened to Lewis Watson before, now is the time to start. Forget Ed Sheeran, Ben Howard and co – Watson is the real hidden gem of the singer-songwriter world.

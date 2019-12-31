@@ -1,0 +1,21 @@
+---
+title: "The Wombats - Glitterbug"
+slug: "the-wombats-glitterbug"
+date: "2015-04-06"
+author: "Kate Giff"
+rating: "3.5"
+---
+
+The Wombats’ fourth album, Glitterbug, arrives four years after their last, This Modern Glitch. It’s no wonder, then, that for me The Wombats are a reminder of easier times, dancing around high on sugar and wearing most of Claire’s Accessories. Four years later, the sound is more developed and their problems more due, apparently, to drugs and alcohol. While the subject matter may have changed, overall their sound hasn’t.
+
+And I’m not saying this is a bad thing. There has always been, and still is, something really refreshing about this band, who avoid the lyrics cloaked in complicated metaphors to put quite simply how they feel: “All I really needed was sex and question marks / Now I’m a ghost and you’ve lost your spark.” They also talk about normal things; the first track on the album is called Emoticons. Usually, I would take this as a red flag signalling lazy song writing. However, they avoid the “Kiss Me Thru The Phone” version of modern romance to focus on how the “Emoticons and words try to make it better, but they only make it worse,” creating angst most relatable. This track also has the killer first line “It’s hard to stay objective, baby / With your tongue abseiling down my neck,” which I think is a strong start to any album.
+
+Most of the songs seem to be about girls, or maybe one girl in particular. If the titles are anything to go by, I’m guessing someone was called Isabel. She (and any other potential girls mentioned) all seemed to be quite badass and are celebrated in most of the tracks. In Greek Tragedy, the first single from this album, we’re told, “She hits like ecstasy.” In Isabel, we’re told it’s her “Who’s the real rock star around here.” Isabel seems to be a moment of honest vulnerability, which is very welcome in the middle of the more upbeat tracks.
+
+Another nice thing about The Wombats is that they also seem completely unapologetic about being in their early twenties and are unpretentious in the way they talk about drink, drugs, and their apartment being too cold.
+
+This band has always been great at producing the alt-pop, energy-filled three minute bangers (think Let’s Dance to Joy Division or Tokyo) and while Glitterbug goes further than this on the slower tracks such as Isabel and Headspace, the band as a whole doesn’t seem to have progressed much from their last albums. Again, this isn’t necessarily a bad thing. With Matthew Murphy’s instantly recognisable northern drawl and their love of strong one-liners (“I’ve met someone who makes me feel seasick,” or “Your body is a weapon” being prime examples) The Wombats have a definite niche in the market, and don’t need to change drastically.
+
+Throughout the album there seems to be a wide variety of musical influences. I got a Passion Pit vibe from some parts of Emoticons, and Headspace is almost reminiscent of 1980s Go West. This paired with the unromantic, simple lyrics about staying in on a Friday night (or asking someone to use the spare bedroom if they bring someone home, in Pink Lemonade) make most of the songs catchy, and listening to the album as a whole was really enjoyable. I was also pleasantly surprised with British Summer, which is by all accounts a two and a half minute rock track. Less synth than the rest of the album, I wouldn’t have guessed this was a Wombats song at first, with an opening that sounds a little like White Stripes’ Blue Orchid.
+
+All in all, this album is well put together and has a good flow from the slower, spaced out tracks to the classic upbeat alt-pop. For me, the highlights are Emoticons, Your Body is a Weapon and British Summer. Your Body is a Weapon has been floating around alternative radio stations for a while now, and in my head is the archetypal Wombats song, full of longing and a great instrumental, as well as the simple yet completely effective “Your body is a weapon and it makes me want to cry.” I know I’ve used this word before, but this is the perfect album if you need a bit of angst, whether it’s because you want to see someone naked and can’t, or because you’re at a party and you’ve “lost all self control.” Overall, it’s great to know that as I’ve grown away from sugar highs to drunken lows, so have The Wombats.

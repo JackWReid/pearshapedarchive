@@ -1,0 +1,31 @@
+---
+title: "Heart Of A Coward"
+slug: "heart-of-a-coward-2"
+date: "2015-12-02"
+author: "Finn Dickinson"
+rating: "undefined"
+---
+
+_**How’s the tour been going?**_ Really good man, really good. It’s quite a small tour, all the venues have been quite intimate. The crowd response has been wicked when it’s a packed out show and you’ve got all these people diving over each other. It’s been really good and tonight should be good as well. A lot of people coming down, so it should be fun.
+
+_**Any highlights so far?**_ Highlights for me, personally, would be Reading and Kingston. Kingston was a 150 cap, sold out show – absolutely rammed, one of the craziest shows we’ve ever played. So yeah, probably those two for me, but hopefully tonight will be on par.
+
+_**Obviously the tour is partially in support of your new album, Deliverance. In terms of making the album, how do you feel the process has differed creatively from your other two records?**_ We spent a lot more time on it. I started writing the album about a year before we went into the studio, whereas with Severance we only had about six months, so we were writing as quickly as possible to try and get it ready. With Deliverance we had a lot more time so we focused on different ideas a little bit more and worked more on developing different things. We could hone in more on what we wanted everything to sound like. For me, I’m definitely prouder of this one than anything we’ve done before.
+
+_**I actually saw you guys over the summer headlining Tech-Fest, and I know you also played Download earlier this year. How do you think playing a big festival like Download compares to headlining a smaller festival like Tech-Fest?**_ It’s just a different vibe. With the bigger shows you’re obviously a lot further away from the crowd, so as a band you’ve a lot more work to do to get the crowd going and get everybody involved. Whereas with the smaller shows, it’s so close and sweaty – it’s just easy. Everyone’s up for it. But each is amazing in their own way. I love playing the big venues and festivals, it’s a career highlight. I’ve always wanted to play Download festival - to get the opportunity to play the main stage was huge - but I love shows like this as well because it’s our roots. We get to play the smaller venues and get a really cool reaction.
+
+_**What sort of stuff do you find yourself listening to on tour? Do you have a tour playlist?**_ A bit of everything, really. We’ve been listening to a lot of Decapitated and Deftones. It depends on the time of day, too. After a show we usually mellow out a little bit - put some chilled out stuff on like Sigur Rós. Just stuff like that, and then a lot of metal every now and again as well. It’s a variety. Everyone in the band is into their own thing, as well. Jamie and Steve are into their old-school death metal, Steve listens to a lot of Black Sabbath as well so we’ll sometimes have that one. A bit of everything, man.
+
+_**So, I’m curious to get your point of view. Djent: genre or just a made-up word?**_ Made-up word. Straight up, made-up word. Yeah (laughs).
+
+_**You’ve been on a few tours obviously. Are there any bands in particular you’ve supported or co-headlined with that you really enjoyed touring with?**_ One of my favourites has been the tour we did with Sikth. We toured with them and they were such a nice bunch of guys, man. Justin – their vocalist – produced our album as well. We’re very good friends with him and I’ve worked closely with him, so to tour with them as well… I used to listen to them when I was a kid, so to have the opportunity to tour with them was amazing. In terms of support bands: Carcer City have been awesome, Red Enemy are awesome dudes and we get on really well with them as well. There hasn’t really been a tour where we’ve not got on with who we were touring with, but a highlight would definitely be Sikth.
+
+_**Are there any festivals you’d really love to play that you haven’t got to yet?**_ I’ve always wanted to do one in Switzerland called Greenfield. It’s right in the mountains and I’d love to do that. Graspop would be cool, Reading and Leeds would be cool. Hopefully we get the chance do some in the New Year. I’d like to do Download again. Festivals are great, it doesn’t really matter where it is. We did a few in Europe this year – playing bigger stages with a lot more people, when the sun’s beaming down on everything. It’s such a cool experience. Hopefully we get to do quite a lot more next year.
+
+_**Personally, I think 2015’s been a great year for metal, and for music generally. Have you got any favourite releases this year?**_ I really like the new Thy Art \[Is Murder\] album – Holy War was great. I’m not sure what the other guys have been listening to but that’s definitely a stand out for me.
+
+_**You guys have worked your way up to the point where you’re now touring and playing gigs like this. Have you got any advice for people in metal bands – and in bands generally – that are trying to get started?**_ Just keep playing shows. Keep writing music. Don’t lose the faith in it – it’s so important. So many bands just get to the point where they think "We’re not going to get much bigger than this, let’s just leave it", and get bored with it. You’ve got to keep doing it. Enjoy it and just have fun. It’s not always going to be easy. There’s a lot of stuff going on behind the scenes which is hard to deal with. Being away from home for such a long time, you lose your home comforts, you miss your friends and family… But it’s all worth it. If you just keep powering through it works out. Keep doing what you’re doing – that’d be my advice.
+
+_**Metal bands are well-known for having some of the best band names out there. Do you have any favourite names?**_ Cattle Decapitation is a pretty ridiculous one. Dying Fetus as well, you know? Stupid shit like that. Even Korn – there’s a metal band called Korn, know what I mean? It doesn’t really matter what you’re called. Our name is pretty stupid, but it is what it is. Those three names are pretty funny.
+
+_**What’s next for Heart Of A Coward?**_ We’ve got Christmas off. We’re taking a break over the next few months. We’ve a couple of tours lined up for next year that I can’t really announce yet, and festivals as well. It’s going to be a busy year.

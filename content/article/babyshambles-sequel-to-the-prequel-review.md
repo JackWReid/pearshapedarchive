@@ -1,0 +1,15 @@
+---
+title: "Babyshambles – Sequel To The Prequel"
+slug: "babyshambles-sequel-to-the-prequel-review"
+date: "2013-09-02"
+author: "Josh Gray"
+rating: "4"
+---
+
+When Pete Doherty formed Babyshambles in those heady days of the early 00s, back in an era when Kaiser Chiefs could sell out stadiums, and sporting the trilby-guitar combo could get you instantly laid, the band had one major problem: Pete’s musical baggage. People saw Babyshambles’ releases as the stopgap between The Libertines’ albums, assuming that it was only a matter of time before they got a follow up to 2004’s The Libertines to really sink their teeth into. Consequentially, the reception of both Down In Albion and Shotter’s Nation was constantly marred by the prospect of Pete’s ‘real band’ getting their act together and reconquering the airways. The title, Sequel To The Prequel, is an intentionally apt one, as it is only now, when only the diehard Carl ’n’ Pete fans truly believe a lasting Libertines reunion will emerge any time soon, that Babyshambles can begin their career in earnest.
+
+This doesn’t mean that Babyshambles have had to change much of their formula; their sonic palette is still a well-blended cocktail of scratchy guitars, reggae breakdowns and fuzzy poetry. However, this is a sound that they’ve refined in the years since the more haphazard Shotter’s Nation. The songs feel more focused and well thought out than ever before, thanks in part to the greater role played by band members Mick Whitnall and Drew McConnell. Drew’s contributions in particular create a strong backbone for the album around which Pete is able to spin his more slapdash stylistic efforts around. Picture Me In A Hospital, written about Drew’s recovery from a bike accident, perfectly balances a light whimsical violin hook with some of the record’s most heartfelt lyrics, and on New Pair he strums out a sweet-ass chord progression that perfectly undercuts the Doherty drawl (although it does sound oddly similar to The Libertines’ Tell The King).
+
+One thing that jars about the album is its pacing: after the barnstorming Mayday-esque opener Fireman, the record takes too long to get back to the more fast-paced/loud/anthemic tunes of Maybellene or Seven Shades. Another failing of the album are the often nonsensical lyrics - couplets such as "We could see monkeys / we could see snakes / we could see penguins / ah, penguins are great!" seem a long way away from the often delicate and beautiful lyrics of Shotter’s Nation. Yeah, Paul Simon could get away with it, but the character of Pete Doherty is already so cartoon-ish that he needs to produce meaningful lyrics to stop the music floating off on a wistful cloud of meaninglessness.
+
+If we are now truly leaving behind the Prequel times and moving towards the main event for Babyshambles, than this album is a promising beginning. Like Doherty, it’s flawed in many ways, but when the talent shines through the melodies, lyrics, and riffs sparkle; and it does it all with a wink and a nod.

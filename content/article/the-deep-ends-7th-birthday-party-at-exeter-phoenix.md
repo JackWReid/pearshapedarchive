@@ -1,0 +1,21 @@
+---
+title: "The Deep End's 7th Birthday Party"
+slug: "the-deep-ends-7th-birthday-party-at-exeter-phoenix"
+date: "2014-01-17"
+author: "Matthew Russell"
+rating: "undefined"
+---
+
+Having never been to a club night at the Phoenix, let alone experienced a Deep End event, I was eager to absorb what this birthday party had to offer. The Deep End have promoted a lot of big nights in Exeter starring the likes of Mala, Pinch, Kahn, and many other celebrated dubstep artists. Indeed, tonight seemed focused on delivering bassweight, but the lineup featured more diversity with Buggsy’s grime-infused reggae, Mungo’s dub and dancehall leanings, and garage and jungle tunes on the Terrace. Quite different, then, to a straight-up club night.
+
+I arrived around 10:45 to catch the end of Vibration Lab in the Auditorium. There was rumbling bass aplenty, but so much that the melodies in his tunes were overshadowed and the mix was muddled at times. The crowd danced like they didn’t seem to mind though, and particularly enjoyed it when one of the promoters, surely meaning birthday business in a buttoned-up suit, jumped on the decks and revved the dub up to a crisp jungle tune with pitched breaks, only to bring it back down after a couple of minutes. This was a party atmosphere for sure, though I probably would have preferred a concentration on mixing and building up energy levels with more thought.
+
+Next up was Buggsy, who quickly announced that he was ill in a slightly nasal voice. His singing did grate on me due to this, but many people knew his songs and reveled in the big, uniting choruses of songs like Born Inna System. There was determined dancing too, with Buggsy’s rapid, rhythmic flows causing this crowd to let loose with drunken steps and flailing arms.
+
+Commodo followed by jerking up the night’s tempo with his Straight Reptilian, which features MF DOOM’s deep drawl erupting into smart, around-the-kit percussion with techno drive. The (first) MC played the dreaded, stereotypical hype-man role, shouting the DJ’s name so many times it became a special offer on a supermarket loudspeaker loop. Much more creative was the second MC, Siege, who hailed the power of the bass as a “seismic wave to the face”. Commodo’s set, however, consisted of more than robust low frequencies. He proved what an asset he is to Mala’s Deep Medi roster by mixing up lashings of experimental bleeps, stabs and squirts to move to. The crowd reacted with more energy and made it obvious that the sounds resonated with many of them. I believe I would have enjoyed this vibrancy for the rest of the night, but the headliner was waiting.
+
+Mungo’s Hi Fi, who later meandered into refined dub, continued the energetic dubstep vibes. It was a shame that the volume dropped near the start, making song lyrics somewhat muted and noticeably reducing the bass. I’m unsure whether there was a technical change or if it was just more meat in the room affecting the travel of sound. Regardless, the sound guys remedied it after Parly B brought it to their attention. This confident dancehall MC was a great addition to Mungo’s since his vocals cut through the mix. It was clear that the two had collaborated together before and Parly B had the artistry to both step back during vocal cuts and liven up instrumentals. Mungo’s played plenty of feel-good party dub sounds, but I couldn’t help but miss the harder, genre-blurring sounds of Commodo. Perhaps others felt similarly since there was a fair bit of empty space on the dance floor by 1:30. I wandered around the other rooms at this point, summing up the drum ‘n’ bass on the rainy Terrace as a soundtrack to those smoking rather than a ready alternative to the Auditorium. The Bar fared better with enough dark space and volume to do justice to Anex’s dubstep preferences.
+
+Despite enjoying Commodo’s set the most, I couldn’t persuade myself to partake in the after-party at the Cavern that he was playing at (2 – 3:30 a.m., £4 on the door). That “seismic wave” of bass had finally left me exhausted. With riddims incessantly on the brain, I wanted little more than a rub-a-dub-dub in the tub.
+
+Big ups to The Deep End, all the acts, the Phoenix, and, not to be forgotten, the speaker box dancers. Bring on more surprises in the next lineup!

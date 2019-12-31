@@ -1,0 +1,25 @@
+---
+title: "Around The Fruit Bowl #3"
+slug: "around-the-fruit-bowl-3"
+date: "2016-11-16"
+author: "Hannah Weiss"
+rating: "undefined"
+---
+
+_Photo Credit: [RCA Records / Kayt Jones](https://www.rcarecords.com/artist/shakira/)_
+
+_**Shakira: Latina Star**_
+
+Shakira is the most powerful Latina singer in the world today. Raised in the coastal town of Barranquilla, Colombia, she signed her first record deal at just 13 years old. 10 chart-topping albums later, she has become not only a crossover dynamo, but a major political player and philanthropist, advocating for better access to education for children in her home country. Hips Don’t Lie, her first number one single in America, is certified triple platinum, one of the best-selling singles of the 21st century.
+
+At 39 Shakira is still striving for success. Her steely work ethic is honed by a childhood dislocated from Colombia to LA and back again when her father’s jewellery business collapsed and her family was bankrupted. Nine year-old Shakira was taken aback by the abrupt shift when her family home, furniture and television were sold off to pay debts. Her father helped his daughter put her new life in perspective by taking her around the neighbourhood to make her aware of the orphans in the area. Realising that she was far from the poorest child in Barranquilla, Shakira vowed to one day do something to help. At the age of 19, she kept her promise, establishing the Pies Descalzos Foundation, in an effort to increase literacy among local children. The charity has since founded six schools in rural communities in Colombia. Now between tours and recording, Shakira attends global conferences on child development and lobbies politicians to make changes. Unsurprising then, that the Hispanic community views her with a similar reverence to Mother Teresa.
+
+Shakira flourished creatively from an early age, learning to belly dance as young as four and, gifted a typewriter at the age of seven, began writing poems that later evolved into songs. Scouted at a local competition, she won an audition with a Sony Colombia music executive and signed a three album deal. However the first two were commercial failures, and Shakira’s music career was hanging by a thread. Sony gave her $100,000 to produce her third album, predicting it would be a flop, with the promise that she would be dropped if she could not prove herself a success. But Shakira went to work, promoting the album on radio stations from Bogota to Honduras and her hustle paid off: Pies Descalzos went platinum. Her fourth studio album, Dónde Están los Ladrones? Was an even bigger hit, and went beyond the Latino music market to crack the Billboard charts.
+
+Spurred on by this success, Shakira turned her attention the biggest music market in the world – the USA. The fact that she barely spoke English? Minor hurdle. She hired a language tutor and as the story goes, wrote every song on her crossover album, Laundry Service, with a dictionary in one hand and a thesaurus in the other. However crossover success can be a tricky tightrope to walk. Shakira’s Spanish listeners often comment that her Spanish songs offer far more lyrical depth than her English tracks, and criticise her as a sell-out, abandoning her native country to become a cookie cutter pop songstress and win favour in the USA.
+
+Shakira denounces these claims, describing herself, and by extension her music, as a fusion. Her mother is Spanish, her father Lebanese, and she draws influences from Arab dance, rock-and-roll (her favourite bands include Led Zeppelin and Nirvana) and her Colombian roots in equal measure. The production of one of her biggest Spanish hits, Ojos Asi, is based in the Phrygian dominant scale and incorporates Arabic chants. Whenever, Wherever, the lead single of Laundry Service, makes use of South American folk music, with panpipes as part of the instrumentation. More recent accusations abound that she has taken the typical route of the female pop star, selling sex more than music. For the track Can’t Remember To Forget About You, a duet with Rihanna, the pair are filmed grinding together, scantily clad in leotards and heels. But Shakira defends the music video, describing the expression of female sexuality as empowering, as opposed to objectifying.
+
+She is indeed a fusion – a cacophony of contradictions: the fourth richest woman in pop, who at the same time has established herself as one of its greatest philanthropists. A Latino singer who makes American pop music and belly-dances on stage, reflecting her middle-eastern heritage. She blithely cavorts in music videos with Rihanna, yet chooses not to do the same with a male actor, as her partner, Spanish footballer Gerard Piqué, objects.
+
+Clearly, Shakira cannot be pinned down. And this in itself may be her greatest strength. Over a decade into her career she knows well that to stay relevant is to remain fluid. A crossover artist, by definition, must break the boundaries of genre. And so Shakira is a kaleidoscope, ever-shifting, staying firmly in her place at the pinnacle of Latin American music.

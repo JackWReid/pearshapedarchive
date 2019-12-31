@@ -1,0 +1,23 @@
+---
+title: "Ariana Grande - thank u, next"
+slug: "ariana-grande-thank-u-next"
+date: "2019-02-27"
+author: "Ellie Turner"
+rating: "5"
+---
+
+_EDITOR'S NOTE: Since the album title and eponymous single are formatted identically, I've italicised the former for clarity._
+
+ 
+
+Six months after the release of sweetener, Ariana Grande is back with a bang. Releasing two studio albums so soon after one other is a far cry from the concrete album cycles of the pop sphere, but it’s a move that Grande manages to pull off with excellence. Despite its shorter production time, _thank u, next_  is undoubtedly one of Grande’s best releases to date, matching her usual confidence and killer vocals with stellar production.
+
+Whilst some of _sweetener_'s sonics remain, _thank u, next_ takes a decidely moodier tone: there are fewer slow ballad tracks, with a heavier reliance on synth-based production. It maintains her usual pop/RnB vibe, and no doubt due to the quick production time, seems to me to be gravellier and more authentic than the glistening sugar-coated _sweetener_. There are no gentle acoustics here, only brash beats and electronic sounds.
+
+Ariana's vocals have always been her strongest point, and yet they somehow reach new levels on this album, with the end of imagine featuring a series of mood-capturing “whistle notes”. To make what is already an extremely personal album even more intimate, a couple of the songs start with voice-notes from Grande’s family and friends. It’s a touch that many might find cliché, but that I find instead grounds Grande even more in her role as a relatable female pop singer. This personal touch is only cemented further by her lyrics: despite frequent interpolation/sampling (7 rings being the most dominant example),  Grande’s personal songwriting ensure that this album embodies _her_ through and through.
+
+Whilst I hope that most people haven’t been through the extent of misery Grande has found herself in, it is her honest and vulnerable relatability that makes the album so successful. Grande could easily have opted for the typical 'break-up album' with this record, but instead she navigates the expansive emotions that someone suffering from heartbreak feels. Grande acknowledges that relationships are never straightforward, unravelling the ideas that everyone experiences heartbreak and emotions generally in the same cookie-cutter way. Album opener imagine at first seems to tell the story of the perfect relationship, explaining why the couple works so well together: “knew you were perfect after the first kiss”. The song's bittersweet twinge arrives when Grande singing “imagine a world like that” turns to “why can’t you imagine a world like that?”. It’s a beautifully subtle yet heart-breaking change, and perfectly encapsulates Grande’s nuanced unpicking of the sheer complexities of relationships. Grande herself explained that if thank u, next equals acceptance about a relationship ending, then imagine is about denial. The album has these intense moments of heartbreak, yet also shows the flawed and wild side of a breakup too. Ending the album on a track called break up with ur girlfriend, I’m bored, has the potential to seem tacky and unnecessary, yet after listening to the rest of _thank u, next_, it instead just affirms Grande’s brutal yet admirable honesty.
+
+What I love about Ariana Grande generally is that she is able to reconcile two different aspects of herself: the sassy, outspoken Ariana, and the vulnerable, emotional Ariana. _t__hank u, next_'s defining ethos is the coexistence of the independent and insecure, the ability to remain true to your emotions rather than simply conform to a singular self-image. My personal favourite track on the album (and potentially the most relatable song ever), needy, acknowledges this entirely: “I admit that I'm a lil' messed up / But I can hide it when I'm all dressed up”. Placing lyrics like these alongside tracks like 7 rings, where Grande outright describes herself as a “savage”, perfectly shows that even those who appear entirely headstrong have their moments, too.
+
+Thank u, next, is a rollercoaster of relatable emotions, yet packaged neatly as an album of incredible pop/RnB songs. If nothing else, _thank u, next_ ensures Grande will maintain her current position as Queen of the charts for a long time to come. Dark periods happen to everyone and it’s how you deal with it that shapes you – _thank u, next_ stands once more as a testimony to both Grande’s strength and the idea that even when your entire world feels like it’s collapsing around you, you’ll always come out the other side if you have just a little faith in yourself.

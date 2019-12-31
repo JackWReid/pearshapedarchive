@@ -1,0 +1,15 @@
+---
+title: "Will Varley Captivates Thekla Audience"
+slug: "will-varley-captivates-thekla-audience"
+date: "2016-11-16"
+author: "Josh Jewell"
+rating: "undefined"
+---
+
+The Thekla crowd's cheer swells to a sound like a crashing wave, and the grinning, world-weary Will Varley standing before us bathes in his audience's adoration. "This is for my girlfriend," he says, as he introduces Until The Grass Gets Greener, "who isn't very happy with me at the moment." This Odysseus of the folk circuit has recently been blown across Europe and America, and is now wandering his home shores. Tonight, his ship has washed up in the heart of Bristol, and he croons his melodies of longing for Penelope and Ithaca.
+
+Before Will’s set we are treated to half an hour of Cocos Lovers, a dark and brooding Simon and Garfunkel-esque folk outfit with rollicking rhythms, eclectic instrumentation, and vocal harmonies tighter than Oliver Twist’s Christmas budget. The sold out Thekla crowd was thoroughly warmed up by the time Will made his unassuming entrance. Guinness in hand, the straggly silhouette began with a few songs from his new record Kingsdown Sundown, including To Build A Wall and We Want Our Planet Back. A few songs in, and the opening riff of Weddings and Wars was met with an almighty roar of approval, at which point the energy in the room spiralled into the stratosphere. Impassioned protest ballad We Don’t Believe you had everyone swaying together and swilling our drinks like a drunken band of revellers huddled around the piano on New Year’s Eve.
+
+The mark of a truly seasoned musician is their ability to carefully control the energy in the room; song by song, verse by verse, even line by line, Varley knows how to bring us down from a thumping chorus and into a soft, emotive verse. The most wonderful moments come when he lingers, voice quivering with feeling, on the most heart-wrenching lines – “if our grass stays golden brown, from the shadows cast upon the ground, buy me a brush and a tin of green dye, and I’ll pain the grass ‘neath the Autumn sky.”
+
+The wall of sound which rose to demand an encore felt like it could have rocked Thelka free of its lashing to the bank, and Will and audience would have sailed out into the Irish Sea together with ballads and folktales ringing out into the night. As it was though, Thekla stayed firmly moored, and we heard the beautifully lyrical One Last Look at the View, and King for a King. Every great gig will give you an emotional little moment which stays with you forever, but there is something particularly special about that feeling of huge despair, huge elation, and total beauty you get during those final lines of King for a King when you realise that the whole cycle of life and happiness and pain just goes around all over again. As Will left the stage I shouted myself hoarse, then stumbled out into a pissing-wet Bristol evening, comforted by the thought that even in a world that’s slowly browning in the shadows, there are still plenty of people willing to grab a brush and a tin of green dye.

@@ -1,0 +1,25 @@
+---
+title: "Vince Staples - Big Fish Theory"
+slug: "vince-staples-big-fish-theory"
+date: "2017-06-23"
+author: "David Crone"
+rating: "4"
+---
+
+It’s hard to deny that Vince Staples is a character. Forever an outspoken voice, he has earned a reputation for his vast array of opinions, putting his spin on topics from poverty to twitter memes, from racial oppression to football coaches. His deadpan and sarcasm-riddled delivery has won him a variety of admirers and critics, but neither faction can deny one thing – that Vince Staples has always had something to say.
+
+Big Fish Theory_,_ following this trend, has a lot to say, but in a way yet unseen in Staples’ work. Staples, at points, packs up the overwhelmingly dark sounds of Summertime ’06 and Prima Donna, merging with Detroit techno to create an unconventional and original sound for rap. Several of the album’s landmark tracks borrow heavily from the nightclub sound, rooted in heavy sub basses and traditional drum patterns. But make no mistakes: whilst some tracks follow a club-based sound, Staples’ trademark eeriness remains.
+
+Noted by Sigmund Freud in 1919, the term unheimlich refers to something that is at once both familiar and unfamiliar, a deviation of what we consider familiar. Staples’ album embraces this idea, presenting a set of familiar sounds, only to challenge them with unfamiliarity and distortion. Osn a large scale, each beat sounds slightly distorted, with certain notes being pitched up to push a sense of unfamiliarity. The SOPHIE and Flume-produced Yeah Right serves as a good example of this, using abrasive, off-kilter drums to skew the track’s sound.
+
+Likewise, this concept works on a smaller level – the album’s soundscape is littered with vinyl crackles, screeches and distorted vocals. For example, the Burial-inspired intro to Love Can Be features thundering garage-influenced drums over a distorted vocal sample, painting us in the pouring rain rather than inside the club. Vince himself furthers this sonic distortion, whose erratic and boundary-pushing delivery paints the album further as both familiar and unfamiliar.
+
+The heavy use of production and unheimlich is effective, but at times has drawbacks. The distortion on tracks such as Homage and Party People can overwhelm the vocals at times, making Vince’s excellent lyricism fall to the wayside. Similarly, the heavy use of production can often overtake the actual rapping, leaving songs such as Rain Come Down and Love Can Be feeling more like a Vince Staples features than his own original songs. Whilst these are minor criticisms, they do slightly detract from the album.
+
+Perhaps the most effective use of the unheimlich is through Vince’s lyrics. Whilst the techno-influence beats sound lively and fun, Vince retains his dark and political lyrical talent. The Crabs in a Bucket metaphor employed on the album’s first track is complex and effective – whilst those in the ghetto (crabs) fight one another, they cannot escape, instead being the plaything of the human (government), content to watch them struggle at the bottom. Indeed, this metaphor plays into the Big Fish Theory itself, that Staples is the “big fish”, too big for Ramona Park, with the choice of facing the same crabs he’s always fought against, or the “sharks” of the bigger pond – different, but just as dangerous. Whilst the album’s production suggests we should be the lively clubgoer, we instead feel like the lone patron at the bar, drinking away our sorrows and wondering where the night went wrong.
+
+Staples’ use of features is another item of note. Often, features can feel incredibly tacked-on, the song a simple verse by verse progression from one artist to the next. Instead, Staples’ features act as catalysts, marking the spaces unoccupied by the album’s host. This sparse and effective use of features complements both Vince’s vocals and the record’s production, creating much-needed variation and letting the album truly flow.
+
+This rule is broken, however, by Kendrick Lamar, who muscles in on Yeah Right to give the track added power. Kendrick’s status as the prominent feature is somewhat telling of Staples’ respect for him – allusions to Kendrick are frequent, building a link between the pair. We see this most prominently in Love Can Be, where Staples echoes “this dick ain’t free” and “tell the world” from Lamar’s 2015 seminal To Pimp a Butterfly_._ Likewise, we see Lamar’s influence on 745, where Vince merges Lamar’s Backseat Freestyle and verse on They Be On It – “All my life man, I want fast cars, NASCAR”. These allusions help maintain a link between Staples and Lamar, serving as a link between tracks and enhancing the album’s flow further.
+
+Overall, Staples’ latest effort is cohesive, effective and powerful. Whilst the dance-based production may seem unnatural for such a bleak album, it instead enhances the mood further, raising the album’s braggadocio at its highs, and droning on at its lows. This is indeed an album of highs and lows, and one that Staples pulls off to great success.

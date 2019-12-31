@@ -1,0 +1,17 @@
+---
+title: "The Smashing Pumpkins - Monuments To An Elegy"
+slug: "the-smashing-pumpkins-monuments-to-an-elegy"
+date: "2014-12-08"
+author: "Emma Richmond"
+rating: "4"
+---
+
+The Smashing Pumpkins are famous for complex narratives, grungy tones, and a heavy dose of guitars. They’ve had a bumpy past as a band, seeing mighty highs, dismal lows, raging arguments, breakups, and revivals in their lifetime as a band. Since their reunion in 2005 they have produced nothing but drab albums that have done nothing but disappoint and confuse their fans, and things didn’t look any more hopeful when frontman, Billy Corgan, became the last remaining original member in 2009. However, 2014 has seen the rebirth of The Smashing Pumpkins with their new album, Monuments To An Elegy. This album casts sounds that recall their glory days, with their former grandiose gusto and fire that fans have been so desperate to hear. However, it is not without its flaws.
+
+Monuments To An Elegy is the most pop-orientated album that the band has ever produced, incorporating soft keyboards and synths with heavy guitars as the strong foundation of the music. This shapes the album into one which contrasts from track to track. While one may have the Pumpkins' familiar melancholic tones, the next may be upbeat and almost whimsical.
+
+The listener is broken into this new, more positive sound as the album starts off with Tiberius, a song that is as close as we can get to the Pumpkins we had almost two decades ago. Although the first few tracks slowly move towards pop, we don’t hear the synths until the fifth track, Run2me, for me this is where the album falls down. I enjoy the depths and layers of this album, and with love songs being dominant this is even more appreciated, but there’s something hollow and shallow about the tracks that stray too far from the band’s original sound. For a band whose lyrics have always been one of their defining features it is somewhat disappointing when Corgan produces superficial lyrics such as "Run to me, my special love, Run to me".
+
+Despite the occasional flaw, no one can deny that The Smashing Pumpkins have created not only their best album since the reunion, but an album that keeps things interesting for the listener. The guitar mixed with the synths has some moments of clarity and genius, such as in Anti-Hero, in which generic guitar riffs are transformed into something much more unique and daring. On the whole, the album is easy to listen to and has enough quirkiness that it stands out within their lengthy review. Where the others can drift into one mass of melancholy guitars and electronics, Monuments To An Elegy is tuneful, with instrumentals that are cleverly distinct. One can even overlook the lyrical faults in the few tracks which commit these blunders, as they are so upbeat and show a side to the band that we’ve never seen before - it would be a shame to simply dismiss them entirely.
+
+By producing an album that is full of twists and turns which keeps the listener interested, The Smashing Pumpkins have exceeded expectations. Personally, I’m glad that they have been reborn; while this may not be quite the same sound that fans have held onto all of these years, it at least allows us to have a taste of the good old days whilst also developing new sounds which show that they’re back on form. With Monuments To An Elegy being the first album of a pair that will be released less than a year apart, we can certainly look forward to the next installment.

@@ -1,0 +1,19 @@
+---
+title: "Eminem – Marshall Mathers LP 2"
+slug: "eminem-marshall-mathers-lp-2-review"
+date: "2013-11-05"
+author: "Ed Cannon"
+rating: "3.5"
+---
+
+As a hip-hop enthusiast who has reviewed rap albums before, this particular one proved a bit of a conundrum. Even before the release of Marshall Mathers LP 2, four singles were pre-released or leaked: Monster, Rap God, Bezerk and Survival. All have been well received and what became clear was that this album was a return to the classic hyper-playful jokey, yet lyrically gifted, days of Eminem - with recent tracks being more reminiscent of songs such as Just Lose It, Stan and The Real Slim Shady. Eminem dyed his hair back to his characteristic bleach blonde tone, and many breathed a sigh of relief as the dark days of Relapse came to an end.
+
+The problem is, how does one review an album which has already achieved Number 1 upon release (his seventh consecutive Number 1 album in the UK)? The numbers speak for themselves; The Official Charts Company reports that Eminem thus moves level with The Beatles in joint-second place for having achieved the most chart-topping UK albums in a row. That record is jointly held by Led Zeppelin and Abba, each with eight albums having reached the top spot. On top of this, the sound of gritty Detroit rap can frequently be heard in the suburbs of middle-class counties like Cheshire and Cambridgeshire, playing on daytime radio, and I have yet to find a person without an Eminem song on their iPod.
+
+I’ll start with Monster, the song clearly designed to be a chart-topper. It was the only pre-released track with artist collaboration, with Rihanna crooning the chorus. It is certainly catchy and Eminem’s clear and powerful diction is well balanced with Rihanna’s soulful tone. However MM 2’s most surprising track was the first single release, Bezerk. This had clear influences from the Beastie Boys and samples a couple of their songs - The New Style and Fight For Your Right. The first harsh note of guitar static instantly showcases this track as something different. Produced by Rick Rubin, a legend in the hip-hop industry (founder of Def Jam Records who has signed artists such as Beastie Boys, Run-DMC, Public Enemy and LL Cool J), this track seemed to be destined for Top 10 status, and it is its nostalgic old school feel that really makes Bezerk stand out.
+
+However it is not just the four singles from the album that require attention. Unreleased track Love Game pairs Eminem’s more aggressive styling with that of the mellow Kendrick Lamar, and it’s certainly a song that needs a listen from any hip-hop fan. Eminem clearly picks up the marker Lamar set down in his track, Control, and this collaboration appears to be a love child of his 00s tracks and his current sound. See it as a cross between Just Lose it, the music video with Eminem gallivanting around as Michael Jackson, and the cheekiness of Kendrick’s verse in Give It 2 U by Robin Thicke.
+
+So Far… is also worth a listen from a purely academic point of view. Although it will never be in the Top 10, if you ever want to hear a folk/country and rap mash up this is the one. It is ingenious for its lyrics, the fact that Eminem samples himself, his self-analysis of his life, and all over the background of “white trash”. Perhaps his most insightful work to date. Another lesser-known track is Wicked Ways, which has an almost Imagine Dragons-sounding chorus, alongside a more mournful tone.
+
+This album certainly lives up to the hype surrounding the artist who has held the longest running Number 1 hip-hop track in history (Lose Yourself). Most people will find at least one track on the album which will make them throw on a grey zip-up hoody and sulkily nod along. I recommend a serious exploration of this album to the few who have never come across his works - as well as those who are more familiar. This album is a must-have for any hip-hop connoisseurs.

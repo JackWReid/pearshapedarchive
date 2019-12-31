@@ -1,0 +1,17 @@
+---
+title: "Superfood - Don't Say That"
+slug: "superfood-dont-say-that"
+date: "2014-11-03"
+author: "Anam Zafar"
+rating: "4"
+---
+
+Superfood are often associated with the new wave of British indie bands that have suddenly appeared over the past couple of years. They have recently supported the likes of London band, Wolf Alice, and fellow Brummies, Peace. This, along with the fact that they have already graced the pages of NME several times and been picked up by countless music blogs, means that they have been able to establish a solid UK fan base. With their EP, Mam (which was also released this year), getting positive reviews across the board, the band decided that it was time to go all the way and release an album.
+
+Right from the first seconds of opening song, Lily For Your Pad To Rest On, it is made clear that the band have started to experiment. The first sound we hear is not a guitar or drum, but a high-pitched keyboard tone, which is soon joined by a funky bassline and an Asian-influenced guitar riff. It really is the bassline which drives the song, which is nice to hear, as on the band’s EP the bass never really seemed to take the lead in this way.
+
+Rhythm-wise, Superfood seem to have a funkier and slightly poppier approach. This new sound continues with the second song on the album, You Can Believe, again with a driving bassline and catchy chorus. It is great to see that the lyrical style and general moods of the songs have remained pretty similar to what we are already familiar with concerning Superfood – to me, their unique selling point is the fun, not-too-serious approach they take to songwriting, as well as the wandering, often discordant guitar riffs and lyrics about love and everyday life. Title track, Don’t Say That, however, is quite a solemn, downbeat song. With lyrics such as “I feel so paranoid / My friends don’t fill the void,” it shows a more mature and reflective side to the band.
+
+Many fans will already be familiar with three of the songs on Don’t Say That. TV and Melting, which also appeared on Mam, have earned their places on the album, as well as Superfood, which only previously existed on YouTube but which has always been a favourite at live shows. This song is believed to be the first Superfood song and is still my favourite. It captures what the band are all about perfectly – that it is possible to be talented and successful in the music world without having to take yourself too seriously. However, the way that the song has been reworked for the album, with quieter guitars and more controlled vocals, means that some of the fun and raw energy of the song has been lost – hopefully the way that it is performed live will make up for this.
+
+It is understandable that this young band, recording their first album, would want to sound sophisticated and slick as a way of stepping up from Mam. My favourite thing about that EP, however, has always been that raw quality which seems to have been toned down now. Maybe it’s just the band growing up and you can’t blame them for that. Maybe it’s them taking a slightly different direction and that should always be applauded. You also can’t deny their songwriting talent – there are some really unique tracks on this album. The UK has already accepted Superfood and it’s no wonder that they are headlining this year’s NME New Breed tour. Now it’s time for them to go further; I have no doubt that they can do it.

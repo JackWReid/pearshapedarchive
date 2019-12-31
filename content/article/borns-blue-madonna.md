@@ -1,0 +1,19 @@
+---
+title: "BØRNS – Blue Madonna"
+slug: "borns-blue-madonna"
+date: "2018-01-12"
+author: "Liam Hill"
+rating: "3"
+---
+
+BØRNS is a name that many people may be unfamiliar with, though I’m not too sure why this is. It is likely that he is simply another name in a saturated market, that he hasn’t quite broken. The 26 year-old returns with his second full length album, Blue Madonna and has enlisted the help of pop favourite Lana Del Rey on opening track God Save Our Young Blood. Whilst this isn’t an album that will change the world, or even the course of modern pop music, in a manufactured market, it does remain perplexing as to why BØRNS hasn’t gained more recognition.
+
+Melody is always an integral selling point for pop music, at least in my books anyway. It is the melodic hook that 9 times out of 10 you remember; off the top of my head, I think of a handful of songs where this isn’t the case, take Town Called Malice as an example where the bass line is arguably the most iconic part. But whilst I wouldn’t say that BØRNS is a melody master, he certainly has it more or less cracked. Faded Heart is a brilliant example of this. Whilst the driving bass line behind in itself is incredibly catchy, the main shimmering vocal melody is infectious. But more than this, as well as wondrous melodies, BØRNS also deploys incredibly diverse and intriguing rhythms and riffs, Supernatural showcasing this particularly well.
+
+Vocally, BØRNS floats elegantly in an androgynous manner, with a wide range from a low depth to a rare feminine height. Lead single featuring Lana demonstrates this quite well. Starting off on a rather monotonous low register, his voice beautifully blends and interacts with Lana’s by the time the first chorus enters. But by the time we are braced with a key change, around three minutes in, that is when on this track BØRNS vocal really begins to glow. The atmospheric and lusciously expansive closing track Bye-bye Darling is yet another gorgeous example of BØRNS vocal performance with a largely falsetto display.
+
+Blue Madonna’s greatest weakness however is in its overall concept. There is no real certainty to the album. It is trying so hard to pull too many influences, themes and genres to the table that the overall result is a bit of a mishmash. There are moments of indie moodiness, elements of 80s synth pop and glam rock too. And whilst there is no fault in this diverse sound for individual tracks, the overall product feels incoherent and slightly messy. Iceberg by itself is a brilliant, dark and moody track but its preceded by Man, an energetic, fun and uplifting party track. Both songs on there own merits are noteworthy, but for very different and conflicting reasons, making the flow of the album feel convoluted, incomplete and rushed.
+
+Unfortunately, BØRNS is part of a strange musical climate that is so saturated he’s seemingly lost in a black-hole of pop. But, as I said at the beginning, I’m not too sure why he hasn’t quite broken through this barrier into the wider mainstream. Not to be too egotistical on his behalf, but he ticks all the boxes for mainstream pop stardom; he’s attractive, fashionable, has musical friends and strong melodies. You will also likely see his name littered on many festival bills, somewhere near the top, though never in touching distance of the real limelight. This may be a fair representation of his current popularity, but I still struggle to grasp why he hasn’t broken through. Again, reiterating what I said earlier on, this album is far from perfect and far from ground-breaking, but unfortunately the great swathes of pop music in the charts at the moment also satisfy this description.
+
+Blue Madonna is an artistic and stylish album that is searching for a little more direction and some lyrical depth. That being said, its certainly not a bad sophomore album and BØRNS remains incredibly underrated and overlooked in the cutthroat world of pop music.

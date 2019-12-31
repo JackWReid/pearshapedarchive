@@ -1,0 +1,21 @@
+---
+title: "Susanne Sundfør - Music For People In Trouble"
+slug: "susanne-sundfor-music-for-people-in-trouble"
+date: "2017-09-08"
+author: "Oliver Rose"
+rating: "4.5"
+---
+
+Susanne Sundfør can do no wrong. Beginning with her folk-pop 2007 debut, and running right through a dark synthesiser odyssey to some cadence on this year’s sparse, sombre offering, Music For People In Trouble, her discography represents ten years of stunning songcraft, bettering itself at every stage and experimenting wildly along the way. If you listen to one record this autumn, make it this one.
+
+A very broad range of influences has quite clearly touched the encyclopaedic palate responsible for this beautiful musical carpentry. Chord progressions come with the subversive winks and japery of Scott Walker, Joy Division and the Beatles. Miles Davis’ creative and playful disregard for pop-structures interjects, and a sensitive feminist bent comes courtesy of Stevie Nicks, Carly Simon and Dolly Parton. On the album Ten Love Songs, a love of analogue synthesisers betrayed a fascination with Depeche Mode, italo disco and Angelo Badalementi. Untraceable, unique and infinitely more beautiful however, is Susanne Sundfør’s voice. It is the voice of an otherworldly angel and on Music for People in Trouble, it is more breath taking, chilling and gorgeous to behold than ever.
+
+Though arguably not the darkest record of her career (that title may still belong to 2010’s devastating darkwave meditation, The Brothel), …People In Trouble is a sad beast, weeping in the foetal position for nature and decrying the major outlets of pain in a modern world, from mechanised war to industrial oil spills. All the while, an interwoven sense of personality develops inside of the ‘troubled’ musical world; that same old soul, struggling in love and with the self, but, for its world consciousness, beautifully aware, and all the more sincere for its outpouring sympathy.
+
+Sundfør refuses to call the album conceptual – it is not, she insists, a travelogue; merely, it is informed by the extensive traveling she undertook to recover from recording Ten Love Songs in near-total isolation. The tight-knit of this track-list is difficult to ignore however, and just as every song casts an emotional singular in a world of agonised plurals, so then do the musical structures repeat and signpost particular moods. Soft, dark jazz is deployed to create a sinister environment; lap-steel guitars, recalling the simple joyousness of country music, sound as though they are crying.
+
+End to end the record is utterly fantastic – virtually flawless. It’s a tiny, tiny criticism, but if …People In Trouble has a single drawback, it’s that it very occasionally takes itself too seriously. The English-accented spoken word passages will remind listeners of John Grant’s third album (the man himself features here, most prominently on the environmentally-mourning closer, Mountaineers), where similar interruptions upset the poetry of the music a fraction.
+
+That aside though, these are some of the most evocative and heart-breaking songs Sundfør has ever written. Bedtime Story calls out the lies of the once loyal in direct and accusatory terms; the Sound of War soundtracks fleeing refugees in the slowest of motions; and the Golden Age bemoans growing old, framed by the context of a world in decline. Throughout, the piano playing, composition, atmosphere, and subtle utilisation of electronics is utterly superb. These are fantastic melodies, and in the genre of melancholic folk (if it doesn’t exist yet, it does now), Sundfør is breaking ground, hard and fast.
+
+Throughout everything however, it remains most majorly fascinating to me that the artist is so supremely confident and capable composing in a second language. Not an ounce of her sincerity is misplaced, and no lyrical notion suffers from the charming but ultimately misguided translation that typifies Scandinavian pop. In fact, she seems to go so far as to reference this phenomenon right as the record begins. “I’m as lucky as a moon,” she sings; “on a starry night in June, looking down on a lagoon”; a set of predictable, simple rhymes and ideas that make her final, contrasting admission all the more crushing: “I’m as empty as the Earth.”

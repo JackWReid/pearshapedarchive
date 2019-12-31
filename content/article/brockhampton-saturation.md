@@ -1,0 +1,23 @@
+---
+title: "BROCKHAMPTON - SATURATION"
+slug: "brockhampton-saturation"
+date: "2017-06-09"
+author: "David Crone"
+rating: "5"
+---
+
+Collectives, especially within rap, often produce some of the genre’s most unique talents.  Take the group Odd Future, a rap collective formed in 2006 by Tyler the Creator, as an example. The group’s experimental take on the genre shifted the direction of hip-hop and brought us a roster of talented artists. Frank Ocean went on to a phenomenal solo career, producing two RnB masterpieces in Channel Orange and Blonde. Similarly, Tyler the Creator went on to new heights, with an incredible solo career and successful clothing line. Even the lesser-known members have gone on to solo success – Domo Genesis and Syd both released critically-acclaimed albums, with the latter also acting as lead vocalist for band The Internet.
+
+We are yet to see which talents emerge from BROCKHAMPTON, but we can be sure that the talents are there. The group, which released its debut mixtape last year, is formed of a plethora of talented rappers, vocalists and producers, with artists such as Dom McLennon and Kevin Abstract having individual buzz before forming the group. Despite this, the group’s actual size remains in uncertainty - their website lists photographers, creative assistants, and directors as part of the group rather than assistance. One gets the feeling that BROCKHAMPTON transcends the music itself, becoming an artistic movement rather than simply a group.
+
+On SATURATION, this artistic movement is in full swing, with a full range of artistic diversity on display. The group quickly moves from the abrasive, gritty punk-rap of HEAT to the tropical, Glass Animals-inspired BANK, then from GOLD’S upbeat dance-rhythm to the soulful RnB jam of FACE. And these are just the songs that can be thrown into vague categories – the rest of the album reaches creative heights unseen within recent hip-hop. For example, on FAKE, the beat sounds almost videogame-like, before swiftly being contrasted by the abstract, pitched-up rapping of Kevin Abstract. Likewise, on BOYS, a soft, flute-led beat is quickly broken by the rowdy chant of “Hella boys say”, then further juxtaposed with lyrics about One Direction.
+
+And yet it works. The blend of traditional sounds with absurdist, artistic choices makes for a consistently engaging and sonically unique record, a more impressive feat when considering the album’s 17-track length. After the failings of similarly lengthy records from Kid Cudi and Lil Yachty in the last year, it would have been safer for BROCKHAMPTON to cut the record somewhat, to avoid songs being branded as filler. Their refusal to do so demonstrates their confidence in this project, and truly this confidence is well-placed. There is not a skippable moment on this album. Sure, singles such as GOLD and STAR might have been catchier originally, but every song is a grower, swiftly replacing the singles in your rotation.
+
+The album is a vast diaspora of sounds, styles and vocals, unable to be compressed into any one box. This eclectic mix of music is exactly what hip-hop needs to progress – it pushes the genre to its boundaries, even blending it with RnB, dance and punk at times. But to say this album is merely for hip-hop listeners would be reductive. SATURATION is an album for music-lovers, featuring a vibrant array of music that has few, if any, weak moments.
+
+Indeed, very little of this album can be criticised. Whilst some may argue that its sonic variance displays a lack of cohesion as a project, the repetition of familiar voices help to anchor this project to the BROCKHAMPTON moniker. But this moniker never threatens to erase its members, who add character, passion and emotion throughout the work. One becomes familiar with both the group itself, and with each of its artists.
+
+Whilst Odd Future serve as perhaps our closest mainstream parallel for the group, BROCKHAMPTON is a different beast entirely. Whereas it is generally considered that Odd Future worked better as individuals, the unity and cohesion displayed on this album suggests that rather than divide, BROCKHAMPTON would function better as a unit, working to develop their unique sound together.
+
+Odd Future’s start was perhaps best characterised as a diamond in the rough, natural talent without the polish needed to be truly great. SATURATION, however, pushes past this roughness, as a cohesive, original and consistently fantastic record. BROCKHAMPTON, rising from seeming nothingness, have produced an artistic masterclass, transcends the boundaries of style, genre and voice to produce one of the year’s greatest releases so far.

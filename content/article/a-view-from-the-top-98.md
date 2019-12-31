@@ -1,0 +1,19 @@
+---
+title: "A View From The Top #98"
+slug: "a-view-from-the-top-98"
+date: "2017-10-15"
+author: "Hannah Weiss"
+rating: "undefined"
+---
+
+Despite this Friday marking the second successive week Post Malone’s Rockstar has topped the charts, I had yet to give the track a listen before being required to for this column. My reluctance stems from a cynicism at the copycat nature of current American hip-hop. And it is impossible not to view Rockstar against this backdrop, because Post Malone brings nothing new to the table. The track opens with a few discordant piano bars and an echoing, eerie laugh that hints at the defiant nature of the lyrics. Yet Post Malone, and his sidekick Savage, who pops up halfway through to offer a few limp refrains about his car collection, are rebels without a cause, boasting about their superstar lifestyle with no reference to the fallout that will inevitably come if you shot crack five nights a week, nor even offering a rags to riches narrative the listener can cling to as a means to excuse their reckless debauchery.
+
+It is interesting then, that this track remains so popular. Arguably, by steadfastly ticking all the boxes necessary to make the ultimate cookie-cutter hip-pop track, Post Malone knew exactly what he was doing. The lazy, autotuned lyrical couplets ride a hypnotic track beat boosted by a bassline perfect for club remixes. The chorus, while mindless, is definitely an earworm. And the lyrics themselves, while drivel, offer the possibility of a mindless escape for millennial listeners bored to tears in their 9/5 living wage jobs. Who wouldn’t prefer to be a Rockstar?
+
+The track is so languid, it almost stands still. But this blatant lack of energy could be viewed as a way to decry the mechanical hit-machine hip-hop is becoming. Post Malone’s bars display an almost voyeuristic, distant perspective on the idealised party lifestyle he refers to. Lines such as “L.A. bitches always askin”, "Where the coke at?/ Livin' like a rockstar, smash out on a cop car” at first glance offer nothing more than witless misogyny and the glamorisation of crime, yet Post Malone doesn’t seem overly hyped at the prospect. In contrast to the golden age of 90s hip-hop, when Ice Cube and Tupac had a clear message when they rapped about gun crime and drugs, Post Malone has nothing to say.
+
+But maybe that’s the point. Listeners will wash this down easily as they begin another Friday night. Savage might just finally fill out his garage with the profits from streaming sales. And so society, riddled with social injustice, growing rich-poor divides, gender inequality and rising crime – reflecting much the same world 90s MCs fought to decry – settles into its downward spiral. By defining the dream of capitalist decadence we cling to in the face of disaster, Post Malone reveals the powerlessness of this choice. I would like to think the world has moved forwards since rappers boasted of their material possessions as a way to prove their success. Since hip-hop used women as objects to define male power. But Rockstar is taken from Post Malone’s upcoming sophomore album: _Beerpongs and Bentleys_. That says it all really.
+
+Society remains unequal. Hip-hop continues as a means for us to bluster witless bravado in the face of the man. “Cocaine on the table, liquor pourin', don't give a damn”, Post Malone spits lazily. We hear nothing meaningful in his words, and skip on to the next track while blasting current chart trends for their drivel. Is it too late to wake up and wonder why our generation identifies so easily with this emptiness?
+
+As a rapper, Post Malone should by definition have something to say. Instead, the hollowness of this track rings loud. Rockstar may be a musical blank slate. But that in itself sends a message, intended or not.

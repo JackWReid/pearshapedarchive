@@ -1,0 +1,41 @@
+---
+title: "Bloom"
+slug: "bloom"
+date: "2015-04-02"
+author: "Dom Ford"
+rating: "undefined"
+---
+
+**_Guitar: Rory_** **_Bass: Luke                          _** **_Drums: Ben_**
+
+**_So your recording’s all done? What format is it in?_** **Rory:** Pretty much, I sent him the list of changes to the masters yesterday. Should be out in the next week and a half? Hopefully. We’re gonna put each one out one at a time I think.
+
+**_What’s one piece of gear you couldn’t live without?_** **Rory:** My delay pedal. I couldn’t live without my delay pedal. **Ben:** My snare drum I think I’d be pretty gutted without. **Luke:** Well it has to be my bass.
+
+**_Apart from the instruments!_** **Rory:** You said you were more upset about the Big Muff pedal! **Luke:** Yeah it’s probably worth more to me!
+
+**_You guys are in second year aren’t you? How did you guys meet?_** **Rory:** Sam and I are both from Jersey, so we knew each other from school. And we both got here – hadn’t seen each other in a couple of years – and just met up and decided to start jamming. We met Ben through Campus Bands. There was a guy called… who was here last year and introduced us, and then Luke was a friend of Ben’s who played bass. **Luke:** Yeah I was a friend of Ben’s and we met drinking and being rowdy was like “Hey mate, do you wanna try and make some music?”
+
+**_You released your acoustic EP a while ago. Was that out of necessity because of costs or time? In an ideal world would you have released your electric stuff first?_** **Rory:** We started doing electric stuff. **Ben:** Yeah, but I mean producing it yourself with no real knowledge is quite difficult. We tried it but it didn’t really work. We just wanted something to put up to send to BBC Introducing. **Rory:** And our friends were like “You guys have been going for a year and you haven’t released anything! We wanna hear something!” We were doing a lot of acoustic stuff last term and it was much easier to record.
+
+**_So how do you like playing acoustic compared to electric? Is it very much secondary to your electric stuff?_** **Rory:** It’s nice having the option isn’t it, because some venues will only really cater for acoustic, like Firehouse. We did an electric set there. **Luke:** Yeah but you just can’t get the sound right there playing electric. **Ben:** It’s very relaxing, as well, playing acoustic. It’s just a nice atmosphere and a nice sound. **Rory:** It’s nice, as well, where some songs might take a while to figure out as a band but acoustic it’s just so simple – done pretty much straight away. So there’s the opportunity for new stuff to come out like that.
+
+**_So Battle of the Bands: you won it, well done. Your cover of Hey Ya by Outkast: how did that come about? Whose idea was it?_** **Rory:** It was a reference to when we did Battle of the Bands last year. That’s what people always used to go on about and we got known as the band who did Hey Ya for a while and so we stopped playing it. People kept coming up to us after gigs and saying, “Why didn’t you do Hey Ya?” so we thought if we got to the final we’d play it, because everyone would recognise it. Sam used to play it acoustically, so he knew all the chords and melodies and stuff when we were putting it together. **Ben:** It was nice at the end getting all the other bands on stage too. **Luke:** Yeah that was really fun. I enjoyed that.
+
+**_I’ve seen you guys play a few times now. I’ve noticed a bit of an increase in the amount of energy and movement around stage you have. Was that a conscious decision?_** **Rory:** Yeah definitely. That’s one thing we needed to work on because we were always quite reserved on stage. We’re not afraid to do that now. We’d always come off and be really critical about our stage presence. Now I think we’ve just relaxed a bit and stopped worrying too much. It’s better to look stupid than not move at all!
+
+**_How’s your live set in general progressed?_** **Luke:** Running up to Battle of the Bands final it improved dramatically. Transitions between songs just got better and better. We had a jam that we played in between songs in the final and that just helped piece together the set really. Running up to that week we’d never really thought about it before. **Rory:** Yeah, you have to step it up with each round of Battle of the Bands if you want to progress. **Ben:** We just don’t want any awkward silences between songs. Which is what it used to be like a little bit. Rory: Our strength isn’t talking to the crowd!
+
+**_Was this time round the first time you introduced those links?_** **Luke:** We played at Cavern the Wednesday before Battle of the Bands supporting The Carnabys, and that was a good opportunity to try stuff for the final. So we just started making up stuff in practice to play in between songs, and we’ll definitely do more of that. It just happened really naturally. **Rory:** It makes it feel like a complete set rather than song-song-song.
+
+**_So for the purposes of bias I’m going to exclude your band and my band. Who is your favourite student band?_** **All:** Drive in Saturday. **Rory:** We thought they were gonna win Battle of the Bands. They’re so tight. Really, really good. **Luke:** I really enjoyed National Acrobats \[at Battle of the Bands\] as well. **Rory:** Yeah, I think next year they could win it. If they’re as good as they are now having only been around for a couple of weeks… Very impressive.
+
+**_What are you favourite albums and artists in general, and how much do you think they influence you?_** **Rory:** When we started off I think we were a bit more like distorted guitar, and now I think we try and do a bit more intricate stuff. **Ben:** My main influence for drumming would be the album Antidotes by Foals. Oh I love Radiohead, massively, and Tame Impala. **Luke:** Tame Impala definitely. **Rory:** I really like Innerspeaker, but you prefer Lonerism. **Luke:** Lonerism, yeah. **Rory:** Bloc Party influenced me as well
+
+**_So how about your writing process? Who are the main songwriters and how do the songs come about?_** **Ben:** We haven’t written in a while so I don’t remember… I think Rory and Sam come up with most of our stuff. You guys always bring fully-formed songs to practice, and then we just sort of work on it, which is good. We had one song that came from an electronic thing that I made on my laptop, which is the first song that we’re gonna release actually. **Rory:** For me, recording’s changed the writing process of our band so much, because before we went into the studio… Because we paid quite a lot for it and we really respected the producer and stuff we were like “We need to do a really good job of this,” and we wanted the songs to sound as good as they could so there were some parts of the songs that we thought could be improved. We basically wrote the songs as if they were from scratch, and just changing it about, jamming and coming up with new ideas for a couple of weeks on this track called Oceans. I think it turned into a completely new song. **Luke:** Yeah, it’s completely different. Rory: Really excited to release that on the 1st. For me, that’s the most collaborative song we have.
+
+**_How did you choose your producer and studio?_** **Luke:** Sean Phillips from Saudade recommended James Bragg to us and so we had a chat and the stuff he recorded with Saudade just sounded so big and energetic. **_What are your plans for next year (2015/16)?_** **Rory:** If we could get a festival slot at some point that would be really, really good. **Luke:** This could be quite a big summer for us really if we do it right. We wanna go on a little tour, or just play as much as we can, like play some festivals, and if that all goes well then next year we’ll just keep it going really. **Rory:** For all of us this is ideally what we would like to do after uni, so if we had a bit of momentum by the time we left that would be really, really cool. So yeah, just trying to balance that with doing a degree.
+
+**_What subject do you all do?_** **Luke:** Sports Science and French. **Rory:** I do Biology. **Ben:** Economics with French. **Jack:** You’re gonna be bringing that expertise to the tour then, Ben. **Ben:** Yeah, hopefully!
+
+**_Thanks guys._** **Rory:** Cheers. Hopefully we’ll have something to release soon!

@@ -1,0 +1,23 @@
+---
+title: "Musing on Music #6"
+slug: "musing-on-music-6"
+date: "2017-04-19"
+author: "Hannah Weiss"
+rating: "undefined"
+---
+
+**Speak Now**
+
+Are a singer’s words really their own?
+
+For every single that becomes a hit, there are often dozens of songs discarded along the way. They are created by producers paired with top-line songwriters, whose key role is to shape a central melody and create the hooks that will make the single a chart-topper. It’s a fine art – when listeners give a song seven seconds on average to impress, there must be as many earworms as possible squeezed into the track to make it radio-friendly – a hook in the intro, the pre-chorus, the chorus, the bridge. If Top 40 tracks often seem formulaic it shouldn’t come as a surprise – writing songs to make hits is an exact science.
+
+Sometimes these creative teams will shop their songs around the top-tier artists, or they may be drafted in to write for just one popstar. When stars like Rihanna or Beyoncé prepare a new album, their respective record labels gather teams of writers from around the world to put their heads together and pen the next number one. But is this right? There’s a certain status and credibility that comes with an artist who can boast songwriting credentials. Many stars began their careers writing for others: Bruno Mars, Ne-Yo, Sia. When their status as songwriters and occasional featured artists rose to a certain level, they were given the opportunity to make music for themselves. In the music industry, this kind of creative freedom must be earnt.
+
+Because many successful artists spend much of their time promoting their songs, be it on lengthy world tours or by making appearances on TV and radio, they simply don’t have the time for creative navel-gazing or to sit and wait for their muse to find them. Yet one wouldn’t expect an actor to write a script, so why judge a singer who performs the songs they’re given? Perhaps it’s because the product an artist sells us is supposed to be authentic – as close to their own personality as is possible when refracted through the lens of stardom. We want to believe that the emotion in their ballads is real, that they take inspiration from their own life experiences. When the audience connects with a song, they’d perhaps rather not know that it was written by a team of ten then hastily recorded by the artist in the back of a tour bus.
+
+Yet this is the reality. More often than not, the songwriter is called upon to emulate the artist’s persona in their writing, to reflect a signature sound the listener will identify with. It calls for a chameleon-like talent. Ivor Novello-nominated songwriter Matt Hales makes alt-rock music as Aqualung, but has crafted a variety of tracks for artists including Paloma Faith, The Fray and Jason Mraz. In contrast, top-line songwriter Ester Dean is known for creating the hooks for hits including Rude Boy and What’s My Name for Rihanna, and Super Bass for Nicki Minaj. An accomplished singer, she also records the demos. It can be hard to determine – is Dean putting on Rihanna’s signature swag, or is Rihanna embellishing a sound created by Dean?
+
+In an industry where singers shop around for tracks to perform, one stands out from the rest. Taylor Swift is one of very few popstars known for penning her hits with little or no help. While her talent is commendable, it has also been criticized. Swift has in spades what other manufactured singers lack – that authenticity. She sings what she has experienced, including tantalising references to people and events that add nuance to her lyrics. Yet they also keep the listener – and the tabloids – guessing as to her inspiration. It remains in question whether Swift’s decision to write tracks openly divulging the narrative of her love life is art, or a tactical play for attention. One thing is certain – it works. Swift is one of the best-selling artists of all time, yet perhaps also the most derided. Maybe those popstars who sing words written by others are smarter than we think – they have sacrificed their claim to authenticity, but are not criticised, as Swift is, for being calculated, over-emotional and vengeful. This is an artist whose honesty has gone too far.
+
+But her creative freedom allows her to respond: Blank Space, the number one single from 1989, is a caricature of Swift as seen through her critics’ eyes. The picture she paints is exaggerated and ridiculous – and so mocks the critique itself. It’s an unprecedented approach for an artist to take and impossible when most popstars rely on others as a mouthpiece. Instead, Taylor tells her own story.

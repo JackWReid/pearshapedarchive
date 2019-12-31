@@ -1,0 +1,29 @@
+---
+title: "Fryars"
+slug: "fryars"
+date: "2015-02-15"
+author: "Jessikah Hope Stenson"
+rating: "undefined"
+---
+
+_**So how are you enjoying the tour?**_ Very well thanks. It’s all sold out and that makes a massive difference. If the rooms are kind of full, it’s buzzing.
+
+_**Have you got a favourite venue so far?**_ Yeah, I actually really enjoyed the one in Liverpool because it’s quite old and rickety. I actually think it’s going to get shut down pretty soon. It’s kind of crescent-shaped and there’s balconies – it looks kind of mock Tudor… It was probably built in the 70s though.
+
+_**Where else would you like to tour?**_ Not in the UK. I’ve done quite a lot of European stuff but I’d actually really like to do a Chinese tour.
+
+_**You've helped Rae Morris and quite a few others with production. From this point of view, is there anything you would change about the music industry?**_ I guess from every point of view that I’ve seen - whether it’s my own record or someone else's - the main thing I would change concerns long lead times and marketing schedules. If you pay lots of money for something, you can’t fuck it up if you’re a major label. So it means you can’t just be like "we’ll drop this now" - it means you have to pay and schedule things and have singles etc. Yet this is counter-productive to releasing music quickly, which is probably the smartest idea in the modern musical climate. As soon as you do something, you should put it out there. So I think that often, you see stuff grow quickest when it’s in its early stages and just catches on - as soon as you start charging and strategizing, that’s what really slows stuff down.
+
+_**There’s been a lot of people taking their music down from Spotify recently. What do you think about that?**_ I think it’s easily done if you are really successful, and it’s cool to take that stand if you’re not too, but I would say it’s a very bad idea. It’s where people listen to stuff. Spotify itself isn’t the worst deal for artists - it’s the deals that labels have done with Spotify. The deals that artists previously signed with labels were done in an age before streaming, which means that certain artists aren’t getting paid what they should from Spotify. So it’s kind of an issue with a lot of the major labels as much as it is to do with Spotify. I don’t think it is right to get angry with Spotify, full stop. However, it does promotes the idea of music being free - but I think people grow up with that anyway.
+
+_**So what advice would you give to someone trying to launch their music career in 2015?**_ Put your music on Soundcloud, as they are now doing deals to monetise music for the artist. I mean, I would probably stick shit up on YouTube because people want to watch it. You know, make some dumbass video with clips of people doing funny shit and put your music in the background.
+
+_**How did music begin for you?**_ Well, I got a tiny little drum kit when I was two years old. I bashed that about, tore through a few of the skins, and got another one when I was about four. Then I played the piano; I had piano lessons for maybe a couple of months. I really hate being told what to do so I gave that up, but I always played it a little as I could play by ear, so I just messed around with that. I then wrote some actual melodic (but pretty shit) songs with my brother, in which I played the drums again, properly. I got a big, proper drum kit and played in a pretty terrible Cod Reggae band - even though I don’t think any of us actually liked reggae. Then I got Fruity Loops when I was about fifteen and I started making hip-hop beats and singing over them. Then I put it on MySpace... That's it.
+
+_**So where did the name Fryars come from?**_ I had to register with MySpace when I was fifteen, and it was about 1am... I was like, I really want a name with a big Y in it, because Kanye West had a big Y in his name. It’s not big anymore - someone told me off and said that capitals are annoying – and I agree. I wanted an s at the end too, so people didn’t know whether it was one person or many. I wanted it to not be a real word, so that on Google it would appear near the top.
+
+_**Now that you’ve gotten to a place where you have collaborated with Rae Morris and quite a few other people, who would you love to work with?**_ I keep getting asked this, and I never really know what to say. I love Kanye West. I talk about him all the time. I’m not a fan, I’m just not that kind of person. But I do think he’s a rare example of something that’s in our mainstream with genuine artistic merit. Him aside, I guess a lot of the people I should want to work with are real possibilities. They’re things I work on and talk about all the time. So in a way, I feel like a bit of a goon actually saying it, because I will do it.
+
+_**And how have you found the response to the album that you released last November, Power?**_ It’s good, it’s got a solid Metacritic rating. It’s basically been really well reviewed, but not that many people have actually heard it. It’s all timing - it probably should have come out three years ago. Ultimately, it’s what I intended from it. I had so long to make it that I wouldn’t change anything now. It’s that kind of thing, it’s a perfect version of itself. When you read reviews, you see that some people get every last thing. That’s not because Power is really good – their intuition is right on every point. But I think it’s quite a demanding album. It works from start to finish and I don’t know how many people can be fucked to listen right the way through and then maybe go listen again. There’s a lot of subtleties and I’m not just saying that. There’s a lot of deliberate things in there you have to dig very deep to find.
+
+_**Finally, what’s next for you after this tour? Is it those collaborations or have you got anything else in mind?**_ I’m going to the States for a few months to work with some other people.

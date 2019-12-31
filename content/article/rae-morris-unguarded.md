@@ -1,0 +1,21 @@
+---
+title: "Rae Morris - Unguarded"
+slug: "rae-morris-unguarded"
+date: "2015-01-26"
+author: "Jessikah Hope Stenson"
+rating: "4.5"
+---
+
+If you have never heard of Rae Morris before, it’s vital to note that she is not your average singer-songwriter, attempting to build a successful music career. For one, she doesn’t play guitar. There’s no need to dread the overdone C-A-F-G chord combination that features on practically every single Ed Sheeran song. Likewise, you won’t have to endure notes being held painstakingly on Morris’ debut, Unguarded. In fact, Unguarded is rather an exploratory album which questions the boundaries between pop music and the traditional singer-songwriter. Morris creates effectual compositions with keys and accompanies them with staggering vocals. I’m sure that this is the beginning of many good things to come from her.
+
+Lead single, Unguarded, wields interesting vocal and electronic layers in a smooth fashion, triggering a peaceful tone while maintaining an impressive nature. This track exemplifies Morris’ subtle ability to submerge listeners in her music – the song peaks powerfully before you have even recognised it rising. Songs that work in this way are scattered throughout the album, including Skin, Love Again, and For You.
+
+Artists re-releasing songs for their debut album is a pet peeve of mine. I, as I’m sure many would agree, feel cheated of the new music I am expecting and paying for. Admittedly, when I scanned through the tracklisting of Unguarded, I was a little disappointed. During my first listen I found myself singing along to many songs that have already been on my iPod for a year - hardly what you want from a debut album. However, I was swept up in the song again and came to the realisation: who cares if she has previously released these songs? Regardless, they are damn good.
+
+Previously released songs include Skin, Don’t Go, This Time, Cold, and Not Knowing. Their re-recordings express a refreshing tone, illustrating how rapidly Morris is developing as a musician. The album closes with Not Knowing, originally from the Grow EP. Morris claims that she had always planned to conclude the album with this song as she is so emotionally connected to it. As all of her songs appear to have emotional investment, it soon becomes clear just how personal Not Knowing is. Morris sings: “The things we don’t know, they could fill up a book and the pages you took left me wondering”. These lyrics are orchestrated gracefully to coincide with a symphony of Morris’ steady keys and wave-like synths.
+
+From listening, it’s clear how thought-out Unguarded is. It is because of this that excellent decisions were made – notably the drums on Under The Shadows which gently veer from Morris’ style, but in a very welcome way. Likewise, Cold is the most majestic track as Morris duets with close friend, Fryars; their voices mould together flatteringly. This track also demonstrates how Morris is building a bridge between the traditional singer-songwriter and pop musicians, with typical mainstream rhythm and lyrical content. Cold is not just a song, it is a fully-fledged narrative with characters and a love story. For this reason, it’s an unforgettable point of the album.
+
+Across Unguarded, Morris adopts the gracefulness of vocals associated with the likes of Gabrielle Aplin and Laura Marling, yet delivers them with astonishing power, suggesting that a studio recording simply cannot contain her talent. These exquisite vocals work in harmony with a subtle ebb and flow of synths; she successfully avoids a clash of vocals and synths, a trap that so many other artists fall into with their debuts. Plus, Morris’ lyrics are catchy in a completely un-clichéd way, with her self-claimed honesty screaming from every track.
+
+When examining Unguarded as a whole, it is a wonderfully balanced assortment of cleverly composed songs. Dark songs like Skin transition into lighter tones like Morne Fortuné while complimenting the pop-like tracks such as Love Again. From the tracks that are perfectly simple, with little more than Morris and her keys, to the ones that boast excellent ensembles, it’s difficult to take note of any individual songs that stand out – they all do.

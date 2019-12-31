@@ -1,0 +1,15 @@
+---
+title: "Sum 41 - 13 Voices"
+slug: "sum-41-13-voices"
+date: "2016-10-07"
+author: "Taylor Hill"
+rating: "2"
+---
+
+With bands such as Neck Deep, Modern Baseball, Moose Blood, The Front Bottoms - and even the return of Blink-182 with California and Green Day with Revolution Radio - controlling influence on the pop-punk, it’s difficult to distinguish where Sum 41 fit into the equation. Well in all truth, I don’t think they do anymore.
+
+13 Voices is not a great album. I wouldn’t go as far as saying it’s the worst I’ve ever heard, but it certainly isn’t awe-inspiring. This is an album which was released the same day as Green Day’s Revolution Radio; releasing an album simultaneously with one of the other seasoned bands in the pop-punk/punk rock ‘scene’ was always doing to be problematic. For me, Revolution Radio prevails whereas 13 Voices feels more as a step back as opposed to a step forward. It just has that familiar heavy boy band cliché that we’ve come to expect from bands such as Bullet For My Valentine or Papa Roach – not Sum 41. The melancholy this album emits is just as heavy as its guitars: I find it great that frontman Deryck has written an album to personally disclose some of the troubles and personal fiends he and the band have had to endure, but when I think of Sum 41 I think of songs such as Summer and Motivation which are both fantastic songs. 13 Voices is just a little too dispiriting to the point where it almost feels self-indulgent. It just lacks the crude gratification that the former albums had that made Sum 41 such a guilty pleasure to listen to.
+
+The album does have moments where the hard shell is cracked and this is displayed by the songs War, Fake My Own Death and the bonus track Black Eyes. War in particular has that stadium-anthem sound that made the genre of pop-punk, as a whole, so captivating and instantly appealing, whereas Twisted By Design is way too morbid and unmemorable to be an album closer. Out of all the songs on the album, I can only see War, Fake My Own Death and Black Eyes (at a stretch) making it onto a Sum 41 Greatest Hits record.
+
+Sum 41 are talented musicians without a doubt: commercially successful, award-winning and socially impactful. I love it when albums contain a great degree of  personal matter and are often considered "depressing" by their peers. Your Funeral… My Trial is one of my favourite albums of all time. I don’t want to associate that "depressing: ethos with a band as boisterous as Sum 41 because it’s really just a false representation for what the band represent. A reserved song (or two) in an album with a nice keyboard melody, a gaudy melody and meaningful lyrics can be wonderful as it can be a really welcome change in dynamic if you’ve been listening to elaborate drum fills and powerful metallic guitar sounds. However, in 13 Voices, these elements come together to draw out the introduction to the album before accentuating into this big, heavy, morbid disarray which unfortunately couldn’t grasp my engagement, unlike the former albums.

@@ -1,0 +1,23 @@
+---
+title: "Musing On Music #9"
+slug: "musing-on-music-9"
+date: "2017-05-31"
+author: "Hannah Weiss"
+rating: "undefined"
+---
+
+_Photo Credit: [Columbia Records](http://media.columbiarecords.com/pharrellpresskit/)_
+
+**Switching It Up – Why pop is not merely remixing the past, but forming the future of music**
+
+Pop music is essentially a catch-all term for any music enjoyed by the masses. The connotations are often negative – the assumption is that if music has been made simplistic enough to garner popular appeal, it must be derivative and lack substance. Although an opinion held by many music critics, this view is incongruous when analysed more closely. After all, if a song is capable of connecting to myriad listeners, it must hold some value beyond reaping what’s in their wallets. What’s more, there is this misconception of pop as a genre, when in reality it is a kaleidoscope of musical styles and influences, melded together to form a sound that is both creative and capable of appealing to a wide audience.
+
+It is where pop music merges with other genres that things get interesting – and tensions rise. Pop-rock, pop-punk, even hip-pop are all genres that arguably pale in comparison to their original root forms.  Critics denounce these cross-genres for taking the essence of their influences and stripping them down to produce singles that profit well yet retain little of the sonic complexity or cultural symbolism that defines the true punk or hip hop movements. Nonetheless, what these so-called rip offs do achieve is perhaps more important.
+
+When the politically-charged, rapid-fire rhymes of the Wu-Tang Clan or Akala seem on first listen too aggressive for someone unfamiliar with hip hop, you’ll find mainstream rappers Tinie Tempah or B.o.B topping the Billboard charts; spitting verses connected with a chorus sung by one of pop’s prominent vocalists. Tempah has teamed up with Zara Larsson, B.o.B with Bruno Mars – who, along with Pharrell, has bought funk and soul back into the collective consciousness. It may not be the work of James Brown, but if pop hitmakers can take the core ingredients of soul music that was making waves in the 60s and rework them into a chart-topping single fifty years later, they must be doing something right. Whether you’re listening to Brown’s Get on the Good Foot or Bruno’s 24K Magic you won’t be able to resist the rhythm that runs through both. It is in this way that mainstream music does not detract from its influences, but revitalizes them to create something new and unexpected.
+
+As it forms new sounds, pop also opens niche genres up to new ears. After listening to Pharrell and B.o.B, new fans may go on to seek out Grandmaster Flash and Nas. And as boybands The Vamps and Five Seconds of Summer distil punk-rock into angsty singles palatable for their teen audience, they also – perhaps in the hope of gleaning some sense of authenticity – talk of being influenced by bands such as Green Day and Blink-182, who in turn borrowed from punk’s founders the Ramones and The Clash. No musical movement can remain at its peak forever. While punk’s heyday has long since faded, it’s identity is remade by these artists, and through their retooling of the genre, a new generation can look back to discover the pioneers who inspired their favourite pop stars.
+
+The beauty of pop music is in its ability to meld different genres together. In just one album, 2016’s Anti, Rihanna shifts from reggae to country to jazz, using elements of each genre to create a piece of work that defied convention and broke new ground for the singer. Sound like something you might expect from an avant-garde indie-rocker? But this is pop, pinpointing what works and mixing it all up into something weird and wonderful. If Taylor Swift can dabble in electro-pop with Bad Blood and Harry Styles can serve up Sign of the Times, a five minute plus extravaganza reminiscent of David Bowie, pop can hardly be dubbed safe or simplistic.
+
+Good music does not necessarily mean the conventional, or the established avant-garde. If the Rolling Stones and the Sugar Hill Gang were considered both unorthodox and trivial in their time, the pop music of today gets similarly poor press. But with platforms like SoundCloud and Garageband making it simple and intuitive for the next generation of producers and songwriters to sample their favourite tracks, try out their skills and share new sounds, the mix-and-match approach of pop no longer remains in the shadow of the genres it draws influence from, but stands in its own right as an oft-overlooked goldmine of some of the most interesting and innovative music around.

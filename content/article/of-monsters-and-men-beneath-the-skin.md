@@ -1,0 +1,19 @@
+---
+title: "Of Monsters and Men - Beneath The Skin"
+slug: "of-monsters-and-men-beneath-the-skin"
+date: "2015-06-05"
+author: "Matt Hacke"
+rating: "2"
+---
+
+This review was originally going to take a non-linear format, seen as I was planning to listen to this album whilst travelling around Europe. However, for a number of reasons, namely that I washed my iPod in my jeans by mistake, this didn’t come to pass, and now I am writing it at home - and submitting late.
+
+So, as I am tardy, what has been the general consensus on Beneath the Skin since its release two weeks ago? Metacritic sits it at a cool 5.9 average, and whilst partisan press outlets such as NME have neglected to cover it, more mainstream leaning publications have been favourable. Billboard for example, gave it 4 stars, with the critic claiming, the album is far more realistic and melancholy than their debut, My Head Is an Animal. The Guardian meanwhile, unironically deploys the terms “epic” and “anthem” in a 200-word soundbite that equally leaves the album with 4 stars.
+
+As for me, alarm bells will always go when the word epic is used to describe any sort of musical effort, as it smacks of an unsavoury spectrum with at one end, the “wa-ah-ohs’s” and “hey’s” of bland-but-big stadium musicality, and at the other, the equally vapid drum and bass lite of acts such as Pendulum. With regards to these parameters, Of Monsters and Men risk the former, and Beneath the Skin seems to start squarely in this depressing form, with Crystals proving to be a rather dull opening single. Having said that, the minimalistic lip-sync employed in the video to this song is excellent. The audio however is ultimately lacking.
+
+The good news however, is that as the album progresses, it steadily improves, as the sound teeters on the edge of a pleasing rawness, threatening to escape from the sluggishly clean production that has dominated the folk-rock revolution. It never quite moves into this sonic sphere (normally inhabited by bands such as Slow Club) but it seems that with the singles out of the way early, the team behind Beneath the Skin inadvertently created a couple of decent tracks in the middle through either negligence or experimentation. Having said that, the drums are still notably obnoxious in their slickness throughout - with Slow Life especially blocked from being a decent track by the monotonous pounding that rears its gelled and boring head far too many times on the album. Organs however, which appears at track seven, is mercifully left untouched.
+
+It’s difficult to dislike Of Monsters and Men outright. The interplay between the two vocalists is well-executed and sometimes beautiful, the lyrics, whilst by no means ground-breaking are divergent in imagery from much of today’s chard-fodder, and, for all my complaining, I’d still love to hear Crystals, or for that matter Little Talks in the early hours of Saturday Morning. Yet, what concerns me about Beneath The Skin is that in its sheer dullness and lack of variety it betrays an emptiness at its core, a lack of humanity and passion of artistic merit. This means that it is forever grounded in the superficiality and caprice of the stadium rock genre.
+
+Returning to the Billboard review, the critic differentiates between the band’s debut and their sophomore effort, arguing that filming the first would require a lot of nature shots and CGI, whilst its hereditor is more “realistic”. I was struck reading this metaphor that Of Monsters and Men were, and are still a lot like how I saw James Cameron’s Avatar. Beneath the Skin is slick, well produced, and edited, sometimes extremely nice to listen to, and even boasts some aspects which are a welcomingly different to many of its rivals. Yet, behind this glamour, behind the pounding, painful “epic: grandeur of this cinematography, is there much else there at all? I think not.

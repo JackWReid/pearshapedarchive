@@ -1,0 +1,17 @@
+---
+title: "A View From The Top #60"
+slug: "a-view-from-the-top-60"
+date: "2016-11-27"
+author: "Charlotte Morrison"
+rating: "undefined"
+---
+
+This week Clean Bandit’s lullaby-cum-club-banger, Rockabye hits number one for the third week in a row. Rockabye marks Clean Bandit’s second ever number one hit, after 2014’s Rather Be, and their first single since violinist Neil Amin-Smith left the group (in fact the single was released just two days after Neil’s departure was announced). Musically, it’s a very catchy track that skilfully incorporates the dancehall stylings of the newly re-popularized Sean Paul, the soulful, smoky vocals of Anne-Marie, and Clean Bandit’s iconic string instrumentals. Having seen this line up in the title, I figured I’d enjoy the track since I’ve been a fan of Clean Bandit’s previous dancehall-inspired endeavours, such as 2014’s Come Over featuring Stylo G, and am a huge proponent of Caribbean music in general.
+
+However, Rockabye suffers from one crucial flaw: the song’s lyrical theme is completely incongruous with the genre it’s written in. Rockabye tells the story of a single mother struggling to provide for her son. The track was written with Norwegian singer-songwriter Ina Wroldsen, who wrote the lyrics about her son, which, [according to the band](http://www.digitalspy.com/music/news/a811727/clean-bandit-new-song-2016-sean-paul-rockabye/), is “why it rings so true for us \[the band\] and is so emotional and special”. The problem is that the lyrics don’t ring true at all, as they are performed in this dancehall-house fusion, a genre that is primarily used to sing about partying, romantic relationships and sex.
+
+The effect of this incompatibility of musical and lyrical theme becomes even more jarring when combined with the song’s music video. The video intersperses shots of a “mother” character pole-dancing in what appears to be a seedy bar, shots of her pole-dancing in (admittedly beautiful) natural surroundings, shots of her and her son, and shots of the Clean Bandit’s Grace Chatto and Anne-Marie gleefully dancing and flirtatiously looking in the camera. Overall, it just appears to be a very aesthetically confused project. Are we meant to grind in clubs to a song about the (in Sean Paul’s words) “special bond of creation” that is the maternal bond? Are we meant to quietly reflect on socio-economic conditions that lead to unsupported single mothers over a tropical house beat?
+
+Perhaps this is one topic that is just too lofty for a pop song to handle, or at least too serious to be trivialized by Sean-da-Paul’s repeated interjections of “Bidda-bang-bang”. Just in case the lyrics were actually good and it was just their incongruity with the music that was throwing me off, I listened to a few acoustic covers of Rockabye. However, stripped down, the song loses its entire allure, which comes from the vibrancy of its production.
+
+Rockabye is a track that had huge potential to be a great club banger that I would gladly get down to. Yet its narrative of struggling mother bizarrely paired with dancehall-house music makes for an uncomfortable listen. The track turns single motherhood into a rather clichéd sob story (which it is not in all cases), which is then used to represent “all the single mums out there”; this narrative is then oddly transplants it into a club setting. The only conclusion I can draw from the fact that Rockabye has remained at number one for so long is that people truly don’t care what the lyrics of a track are, as long as it’s got a good beat. Bidda-bang-bang.

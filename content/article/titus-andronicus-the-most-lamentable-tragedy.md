@@ -1,0 +1,21 @@
+---
+title: "Titus Andronicus - The Most Lamentable Tragedy"
+slug: "titus-andronicus-the-most-lamentable-tragedy"
+date: "2015-07-28"
+author: "Dom Woodcock"
+rating: "3"
+---
+
+Even though 2010’s The Monitor was a concept album that drew parallels between Patrick Stickles’ personal turmoil and the American Civil War, The Most Lamentable Tragedy still ranks as Titus Andronicus’ most ostentatious album to date. After paring back their vision for 2012’s raw Local Business, the band rediscovered their experimental tendencies for their fourth album. At twenty-nine tracks and ninety-three minutes, it is a sprawling mess that – all too often – puts its faith in its own outlandish ideas ahead of common sense.
+
+The Most Lamentable Tragedy has a concept, but the story is not essential to enjoying the album. The band’s label, Merge Records, describes the story as concerning an eponymous protagonist who meets his own doppelgänger and embarks upon a “transformative odyssey”. The trouble is that Stickles’ lyrics are often unintelligible, making it difficult to establish any overarching narrative.
+
+Of the twenty-nine tracks, thirteen clock in at under two minutes. Although the odd interlude is expected in such a long album, these often feel like hollow motifs rather than essential building blocks of the album. Sun Salutation, a fifty-seven second choral break, is the best of these while a seventy-eight second silent track feels wholly meaningless.
+
+At the other end of the spectrum, two nine-minute epics sit at the centre of the album. With the fourteen-minute The Battle Of Hampton Roads as the closer on The Monitor, Titus have excellent form in this area. Unsurprisingly, both tracks showcase the band’s exquisite song writing. More Perfect Union is a slow builder, gradually adding layers of instrumentation over Stickles’ lone vocal, culminating in majestic strings and the use of a choir before it drops into an instrumental jam that teeters on the edge of chaos. The second of these tracks, the awkwardly named (S)HE SAID / (S)HE SAID immediately jumps in to a high-tempo groove. Across its length it repeats the same riff over and over again: using different tones, the track recalls sludge metal, punk and soft rock to momentous effect.
+
+The two strongest tracks on the album appear within its first third. Track two, No Future Part IV: No Future Triumphant, delivers an extremely promising start to the album. Stickles’ hook “I hate to be awake” is snarling yet infectious, and it is exactly the sort of melodic punk rock that the album makes its signature sound. The other highlight, Dimed Out, is the song of the year. With pummelling drums, triumphal guitars and a galloping tempo, Stickles’ disorderly vocals fit perfectly. The track is lyrically sharp, catchy as hell and absolutely thunderous. It showcases everything Titus can do at their best, and also makes it all the more disappointing that so much of The Most Lamentable Tragedy is middling.
+
+Indeed, aside from the previously mentioned tracks, much of the album’s runtime is populated by messy, directionless tracks. There are too many to dissect: I Lost My Mind (+@) feels like a musical theatre melody, Stable Boy suffers from an irritatingly rough recording and Into The Void (Filler) lacks a discernible melody. The three covers on the album range from interesting to pointless. I Lost My Mind (DJ) is a great punk rock take on professional weirdo Daniel Johnston’s track, but A Pair Of Brown Eyes is a perfunctory cover that does nothing but produce a hollow shell of the original Pogues track.
+
+On The Monitor, Titus Andronicus showed a mastery of song writing, meticulously exploring their concept with a horde of melodic anthems. With that behind them, The Most Lamentable Tragedy had the potential to be an audacious, colourful masterpiece. I am glad that there are bands out there that are prepared to come out with such a bonkers album, but it is a shame that they missed the mark. Even though The Most Lamentable Tragedy is not a masterpiece, I am glad that Titus Andronicus tested their boundaries and produced something wild rather than holding back their ambition. The Most Lamentable Tragedy is a lot of things, but it is not middle-of-the-road.

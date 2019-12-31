@@ -1,0 +1,17 @@
+---
+title: "Villagers - Where Have You Been All My Life?"
+slug: "villagers-where-have-you-been-all-my-life"
+date: "2016-01-08"
+author: "Hope Claydon"
+rating: "2.7"
+---
+
+Villagers only released their last album nine months ago, so the fact Conor O’Brien et al. have just released another really is very kind. They certainly know how to spoil us, don’t they? Whilst Where Have You Been All My Life? may not be overflowing with new material, it’s a nice celebration of the five years of music the band has already created. Recorded in London’s RAK studio in just one day, the album revisits old tracks from all three of their past albums (Becoming A Jackal, Awayland, Darling Arithmetic) and reimagines them in a more intimate, acoustic setting. The appeal of the album, seemingly, is the rawness of it - each song was done in one or two takes, with O’Brien shunning post-recording edits to offer listeners an experience that highlights the “immediacy of the occasion”.
+
+But what does the album prove, really, besides the fact Villagers perform well live? Some of the songs on Where Have You Been All My Life? are brilliant, undoubtedly - but the problem is, weren’t they already? Even in their reimagined new state, the songs sound similar enough to the originals to not be seen as their own separate entities. The Soul Serene gradually builds vocal harmonies as the song progresses, slowly-burning in the same way the first The Soul Serene did; the piano hook in Everything I Am Is Yours has been shaken up a bit, but feels very similar to the original track; the lyrics of Courage are strikingly poignant (“From time to time, I get heavyhearted / Thinking about how you used to kiss”) but these are the same lyrics from the Courage track on Darling Arithmetic. My favourite tracks from this album were exactly the ones I picked out as my favourites when I first scanned my eyes over the track-list - before I’d started listening to Where Have You Been All My Life? at all. The songs I had previously been less keen on remained the songs I was less keen on. You see what I’m getting at?
+
+Still, the stripped-down setting lets O’Brien’s voice shine; there’s a really magical quality to his vocals (nothing like that good old Irish charm). The album title comes from a line in The Soul Serene, and hearing O’Brien ask the listener over and over again, over gentle acoustic guitar and an analogue synthesiser, is a haunting experience. As always, O’Brien sings the lyrics like he really means them.
+
+And just because the album is familiar doesn’t necessarily stop it from being a good record. The opening track, Set The Tigers Free is a silky and warm, with gentle acoustics and delicate vocal harmonies; Everything I Am Is Yours is fantastically romantic, and the cover of Glen Campbell’s classic Wichita Lineman is powerfully gentle - a tender way to close the album. The problem lies more in the tracks smack bang in the middle - Memoir, Hot Scary Summer and The Waves are so stripped-back that they become ephemeral.
+
+The album is just a little too familiar to offer anything exciting for Villagers fans. The musical talents of this Irish five-piece are undeniable - to create music of this quality in a couple of takes is no easy feat, and speaks volumes against the backdrop of a world that is so reliant on post-recording edits. Where Have You Been All My Life? is a delicate tribute to five years of musical craftsmanship, and it’s a nice gift for dedicated Villagers fans - but as its own being, it’s not the most remarkable album you’ll listen to this year.

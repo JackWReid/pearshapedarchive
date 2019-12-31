@@ -1,0 +1,57 @@
+:root {
+  --c-bg: #fffffe;
+  --c-title: #272343;
+  --c-body: #2d334a;
+  --c-accent: #498c34;
+}
+
+body {
+  margin-bottom: 5rem;
+  line-height: 1.5;
+  background-color: var(--c-bg);
+  color: var(--c-body);
+}
+
+h1, h2, h3, h4, h5, h6 {
+  color: var(--c-title);
+}
+
+a {
+  font-weight: bold;
+  color: var(--c-title);
+  text-decoration-color: var(--c-accent);
+}
+
+a:visited {
+  color: var(--c-body);
+}
+
+body > main,
+body > header,
+body > footer {
+  max-width: 40rem;
+  margin: 0 auto;
+  padding: 0 1rem;
+}
+
+.article-list {
+  margin: 0;
+  padding: 0;
+  list-style: none;
+}
+
+.article-list li {
+  display: flex;
+  margin-bottom: 1rem;
+}
+
+.article-list time {
+  width: 5rem;
+  margin-right: 1rem;
+  flex-shrink: 0;
+  color: var(--c-accent);
+}
+
+.article-list p {
+  margin: 0;
+}

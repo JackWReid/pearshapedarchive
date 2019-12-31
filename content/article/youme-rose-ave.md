@@ -1,0 +1,17 @@
+---
+title: "You+Me - Rose Ave."
+slug: "youme-rose-ave"
+date: "2014-10-13"
+author: "Becca Shepard"
+rating: "3.5"
+---
+
+Pop superstar, P!nk, and indie-rock artist, Dallas Green, (best known for his work as City & Colour) have teamed up to form the folk duo, You+Me, an undoubtedly peculiar pairing, but one that surprisingly works. P!nk (performing under her real name, Alecia Moore) strips away the layers of feisty bravado here, leaving only the bare, untampered melody, which compliments Green’s light, dusky vocals very nicely indeed.
+
+While they might seem an odd match, the pair actually have an extensive musical history: P!nk joined City & Colour on stage back in 2011, featuring on the band’s What Makes A Man, and City & Colour featured on several dates of Moore's 2013 tour. Earlier this year, Green also performed a live version of P!nk’s Try, stripping the song down to just bare solo guitar. Indeed, this idea of sparseness really sums up the duo’s debut album, Rose Ave., which at times is nothing more than the pair singing to a light acoustic accompaniment, and which never has more than two backing instruments, even on its most powerful tracks. While this bareness does create a nice intimacy on the album, and gives the duo ample room to showcase their voices, which are admittedly very lovely, it leaves them nowhere to hide. Though each track is very good - even excellent - individually, when played one after the other in an album format the magic is quickly lost, leaving only a monotonous string of indistinguishable acoustic mush. After all, there really is only so much you can do with two singers and a guitar (and if there was more, You+Me haven’t done it).
+
+That being said, it’s not a bad album by any stretch of the imagination. Just don’t expect to fall in love with it unless you’re a die-hard P!nk fan, or just happen to really love listening to the same song on repeat again, and again, and again. The songs that really stood out for me were, surprisingly, those that tried something a bit different. Love Gone Wrong is definitely one of my favourite tracks on the album, it’s blues-y feel providing a welcome break from the acoustic onslaught. What I particularly enjoyed about this song, aside from the very cool swing piano, was the chance to hear Green sing alone. While the pair do have very complimentary voices, Moore’s is definitely the more powerful of the two and does eclipse Green on more than one occasion.
+
+One song where the duo manage to balance their voices perfectly is the album’s title track, You And Me. It describes a relationship that’s perfect in spite of all its flaws and, despite being slightly cheesy, is a very beautiful listen. The intricate, interwoven harmonies work really well with the simple lyrics and gentle acoustic backing, creating a well-rounded and very pretty sounding track.
+
+The album’s closing track, a cover of Sade’s No Ordinary Love, fares less well. While the piano backing is very pretty - poignant even - the vocals are extremely disappointing. Bland and repetitive where they should be heart-wrenching, this song simply lacks the passion necessary to make it a real show-stopper. At over four minutes, it’s also the longest song on the album and it definitely feels it. In short, it was a thoroughly underwhelming finish to a thoroughly underwhelming album. Rose Ave. is perfectly listenable but it’s never going to set your soul on fire. A disappointing effort for what could have been a truly exceptional collaboration.

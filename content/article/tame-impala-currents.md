@@ -1,0 +1,23 @@
+---
+title: "Tame Impala - Currents"
+slug: "tame-impala-currents"
+date: "2015-07-17"
+author: "Hannah Strode"
+rating: "4"
+---
+
+Word of a new release from Tame Impala was music to the ears of all fans everywhere, including myself. And boy does it live up to the hype, with motion and diversity of sound throughout, coupled with the distinct band sound and some satisfying swear words (and there’s nothing like a well placed swear word in a song to make it all the better).
+
+There are some seriously stunning tracks on this album, with the gorgeous mellow funk of tracks like The Less I Know The Better and Reality In Motion, which are a real improvement on the perhaps slightly same-y nature of the previous albums. Let It Happen, which has been out a while, has really matured into a solid favourite of this year for me - the carefree nature, the electric sound of the instrumentals, and the hair-raisingly good fade, which is by now a staple in any good Tame Impala track, all make for a wonderful piece of music.
+
+But as much as I think that that staple sound is truly amongst the best I’ve heard, the domination of Kevin Parker within the band has always struck an unnerving chord within me. This is exacerbated in this new release, as it seems the other members of the band have moved to the far flung corners of the world, and this album is even more of an echo chamber for Parker’s own personality than ever before. He has had a long history of micromanaging their recording - on every album he plays all the instruments himself and has always written all their music, but something about this album just feels different - like it is a Kevin Parker album, rather than a Tame Impala one.
+
+Whether that is positive or negative, it really depends, as some of the themes are noble and really relevant and enjoyable - much of the album is focused on changing as a person, and how movement and development are important to accept for personal growth. However, some are less noble, exemplified in the catchy but gag-worthy sentiment of ‘Cause I’m a Man. Come on, Kevin, is there really no better reason for you being a terrible boyfriend than your gender identity? And do you really have to drag the rest of the men into your self-absorbed, self-flagellating (and yet somehow extremely self-important) ranting? Love/Paranoia isn’t much better, with weird lines such as “Are you sure it was nothing / Because it made me feel like dying... inside”. Apart from being pretty bad lyric writing, it left a gross feeling for me - I didn’t really like listening to Parker basically have a one-sided guilt-trip fight. I mean, if you can recognise that it’s probably not right to have this kind of paranoia stalking your love, maybe do something about it other than writing a song.
+
+But really, that is my only issue with this album. Well, that and the very sub-par album artwork in comparison to their previous releases. But these have little to no impact on my enjoyment of the musicianship. Tame Impala have done what I want every band to do; create three very different and interestingly diverse albums, with an exciting range of tempo and feel to make the tracks distinct from one another, while still pulling them all together under a unified sound.
+
+The album is also slightly more mellow than some of the tracks on the previous albums, which is a welcome departure as it gives a great variety and really fits in well with the depiction of change and ageing being expressed. There are some excellent bottlenecks of emotion throughout the album (especially the initial high of Let it Happen, in contrast to some of the more heavy-hearted sentiments of tracks like Eventually, and then the upbeat funk of The Less I Know The Better), which lend themselves to a great live performance too.
+
+I also really love the fact that there are varied lengths on the track list, but that these are woven together to provide a full experience. This is something I think is missing in a lot of “modern” music, as our obsession with Spotify playlists means that people rarely listen to an album in full. But if you do anything other than listen to Currents in full, you’re not doing it justice; it is meant to move, ebbing and flowing in a beautiful way.
+
+I mean really, my single problem album is my motherly instinct which wants to just chide Parker, along the lines of “Oh Kevin, please let the other children play with you too. I know you think you’re the best at the toy guitar, but you should play fairly.” But I know full well Parker cares more about the music output than playing fairly, and perhaps I should just be quiet and grateful that that output is so deliciously fantastic.

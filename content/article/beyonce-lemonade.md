@@ -1,0 +1,27 @@
+---
+title: "Beyoncé - Lemonade"
+slug: "beyonce-lemonade"
+date: "2016-04-24"
+author: "Oliver Rose"
+rating: "2.5"
+---
+
+Lemonade: sweet, sticky when spilled – bitter perhaps? It’s a good title. "Based on every woman’s journey of self-knowledge and healing," critics and fans alike wonder: is this Beyoncé’s long-awaited say on a much-speculated marriage? The record skirts around an ultimately peaceful ‘healed’ resolve, which is both frustrating and excellent – is this a fiercely independent woman taking second best, or a fiercely independent woman making pragmatic amends with a challenging situation? Regardless, Beyoncé’s audacious femininity is worthy of applause; a 10/10 for bombast and ferocity every-time. The accompanying film also samples some incredible art (take a moment to look up Warsan Shire’s poetry). Whilst it’s great to see someone with huge media pull appropriating literary culture however, sometimes Queen B’s massive energies misfire, particularly when it comes to the real reason we’re listening anyway – the music.
+
+It has to be said that this particular genre amalgam, alternative R&B/pop, is synonymous with nothing in particular. It’s fairly shallow stuff usually, requiring dramatic acts of publicity or production to reinforce its artistic integrity. Now, this generalisation, whilst largely true, is by no means definitive. Take track one: another soulful, mid-tempo start to yet another Tidal exclusive. Pray You Catch Me, much like Ultralight Beam, is a highlight. It feels genuine, and its observation is tragic: that Beyoncé actively desires to be caught anxiously listening by her lover, with a heart-breaking, ghostly instrumental to boot.
+
+Elsewhere, I really enjoyed parts of Sorry, particularly its icy synths and shameless pop appeal. All Night is good too, sharply produced with creeping horns and echoic guitars recalling Bowie’s ★. Even my dislike of the raspy and overrated Kendrick Lamar can’t sink Freedom, another orchestral-hit-heavy track that comes pre-loaded with soul samples, but sounding altogether feisty and strong. The brilliant single Formation also makes a re-appearance here, though disappointingly, it’s an edit of the video version – shorter, and the hilarious Messy Mya samples have been cut (more on this track later…)
+
+Unfortunately, despite appealing moments, Lemonade’s strengths are vastly outnumbered and undermined by frequent nosedives in quality. Hold Up, the second track, is an offensively unsophisticated rap, performed over a sample of the Andy Williams number, Can’t Get Used to Losing You. Authors of the original sampled track aside, there are _thirteen_ co-writers on this song, amongst their ranks, Ezra Koenig and Father John Misty. What happened? The sample is the only music here. Am I seriously to believe that this rap required thirteen writers? If that’s the case, they should be ashamed – “I don't wanna lose my pride, but I'ma fuck me up a bitch”. _Come on._ It’s these same lazy indelicacies dogging Sorry.
+
+Other moments here are just plain weak. It’s common critical consensus that Daddy Lessons is a _dreadful_ country music/New Orleans jazz mash-up; Six Inch is also getting a beating from reviewers for its emptiness in lieu of a track like Pray You Catch Me. Wishy-washy "soulful" numbers also cause the second side to drag somewhat: albeit sharply produced, tracks seven to nine are about ten years too late stylistically.
+
+Formation is the album’s highlight; I especially enjoyed the way it contrasts the level-headed resolve of the previous track. Its matriarchal militancy manages to avoid becoming offensive by virtue of the medium – it’s a pop song, not a manifesto scrawled in blood and pinned to the naked, swinging corpse of a politician. Nobody likes a second-wave, "kill all men" activist, so for that reason Formation works. It’s a palatable reminder that equality is an issue we shouldn’t ignore – a healthy outlet for gender extremism so that liberalism might do its work in the real world. This in itself though, is another reminder that clumsy lyricists can’t spearhead the next gender revolution.
+
+Finally, track three, Don’t Hurt Yourself, is my favourite song here by far. Beyoncé delivers an enormously impassioned vocal, delivering a killer final blow – “if you try this shit again, you’re gon’ lose your wife”. But, everything else on this track is ‘featured artist’ Jack White’s doing. From the vintage-tech, background hiss at the start, to the rolling, bluesy percussion and inimitable, crunchy guitar tones, it’s more a 2006 White Stripes outtake than a 2016 Beyoncé original. If all this wasn’t enough, White’s own vocals jump in at 1:37 – by then it’s too late, and he’s owning the whole show. You can’t easily call it a Beyoncé song.
+
+Overall then? I think it’s objectively fair to say, it’s a mess – not the conditioned kind that makes Kanye or Rhianna seem more acceptable (although even theirs are records mired in lyrical idiocy that costs the work its sincerity). Ultimately, Lemonade’s concept causes peripheral limitations, preventing it from reaching any kind of postmodern grandeur – its not artfully confused, as it is merely contemplative. It is well produced, but backward steps plague it, semantically and musically.
+
+There’s ambition here – there’s also sloth. Worse still, there’s an eyebrow-raising absence of guilt.
+
+_Read a response to this review [here](http://pearshapedexeter.com/a-writers-response-to-a-review-of-beyonces-lemonade/)._

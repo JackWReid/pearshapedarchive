@@ -1,0 +1,19 @@
+---
+title: "John Grant - Grey Tickles, Black Pressure"
+slug: "john-grant-grey-tickles-black-pressure"
+date: "2015-10-09"
+author: "Alice Woods"
+rating: "4"
+---
+
+I’ve always had a problem describing John Grant. His music seems to span the genres of folk, rock, classical (he’s performed live with the BBC Philharmonic Orchestra) and electro. My housemate calls him a “profound Viking”, which is probably one of the most accurate descriptions I’ve heard. However, what draws me to Grant is his talent at combining personal stories from his past with black humour and a scathing wit. Grey Tickles, Black Pressure is no different.
+
+In this album he contrasts pessimistic and sometimes scathing remarks towards others with erratic electronica, strings and at one point, a bassoon. The whole product is a confusing menagerie of sounds, emotions and insults that really does leave an impression on you. Grant is for sure an acquired taste, but it’s impossible to deny that he is a talented musician. The album opens with a passage from Corinthians spoken in various languages and ending with a strange meld of electronic fuzz. However, it appears that the rest of GTBP is more vicious or at least less wistful. The title track is an example of the aforementioned combination of bizarre lyrics and harmonic instrumentals; Grant sings of haemorrhoids and growing old alongside an orchestral background. It’s bonkers, yet engrossing, which sets the mood for the rest of the album.
+
+You And Him is a sly, cheeky attack at someone who thinks too much of himself. Joined by Amanda Palmer, Grant deals scathing remarks such as “You think you’re super special but you’re just a big twat”, and suggests he should make friends with historical dictators and knit matching sweaters with them. It’s bizarre, crass and slightly politically incorrect but somehow still manages to be an amusing listen. Down Here starts off sounding like The Coral, with indie rock elements, but the lyrics are more sardonic than the happy-sounding instrumentals would have you believe; “All we’re doing is learning how to die / Don’t you think people see the fear behind your smile?” It’s a jazzy-sounding song, with a catchy bassoon solo, and gives the listener a strange feeling; you want to dance to it, but it feels odd doing so.­
+
+Another song like this is Voodoo Doll. Grant jokes about someone he finds boring; as in making a voodoo doll of him, and giving it bland objects to represent this person, such as “chicken soup” and a “corduroy jumpsuit”, because “that’s what you would do”. Global Warming is an attack against pretension and “First World Problems”, which continues to contribute to Grant’s overall cynical view of the people he meets in his life. If you’re expecting a joyous, happy album here, you’ll be disappointed, but John Grant isn’t really here to make you feel happy.
+
+Nevertheless, despite its title, Disappointment is a rather sweet little song written for a lover. Grant lists things he likes in the world, like high literature, but explain that they pale to “the smile as it conquers your face” and the knowledge “that you exist in this time and this place”. It’s a rather sentimental divergence from the overall album. The album finishes off with the same passage from Corinthians, yet spoken by a young child, perhaps suggesting, poignantly, that Grant still has more to experience and his worn-down, cynical viewpoint of love isn’t permanent.
+
+Overall, John Grant isn’t for everyone. His candid, sardonic viewpoint on modern life and love can get a little grating if you’re used to happier lyrics. But if you’re already a fan, Grey Tickles, Black Pressure will surely satisfy you enough, and I’d still recommend a listen to the album even if you’re not a fan, as there’s a beauty to be found in Grant’s work that many other artists just can’t grasp.

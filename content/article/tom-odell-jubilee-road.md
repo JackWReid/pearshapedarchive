@@ -1,0 +1,17 @@
+---
+title: "Tom Odell - Jubilee Road"
+slug: "tom-odell-jubilee-road"
+date: "2018-10-26"
+author: "Lowenna Merritt"
+rating: "3"
+---
+
+Tom Odell’s third album, Jubilee Road, doesn’t stray too far from his usual piano-enriched, ballad-esque style. On first listen, his music can often feel dated, like something your mum might listen to, and it's often hard to shake that thought. But, as a staunch Odell fan, I know that over repeated listens, his music slowly reveals itself to be original, moving and beautifully produced. And thus I persevered.
+
+Odell sets the scene with the title track and opener Jubilee Road. The song encapsulates Odell’s stripped back style and provides a warm welcome to fans of his previous albums Long Way Down and Wrong Crowd but doesn’t exactly push the boat out in terms of experimentation. He does, however, give a mention to ‘getting stoned’ down on Jubilee Road, perhaps his attempt at proving to us all that he’s not the innocent, floppy haired pop star we might perceive him as. This track in particular has a deep engagement with Odell's surroundings and home in East London - after all, Odell claims that it, like the rest of the album, was written by a window overlooking his street. Jubilee Road, with its tales of "Mr Bouvier", "Max, and "Maude", is emblematic of one of the album's greatest strengths - a sense of community that tells the stories of the local people.
+
+A search on Spotify for ‘Tom Odell’ will lead you to many playlists featuring his music, including ‘Life Sucks’ and ‘Alone Again’, and this perhaps gives an indication of the kind of mood Odell creates. This album in particular is not one for the broken-hearted. Honestly, listening to the track Half As Good As You days after a breakup was a slight mistake- but a go-to if you need a good blub. The duet with Alice Merton can come across slightly cliché on her part, perhaps due to Merton’s Beyoncé-style vocals which don’t entirely complement Odell’s more rugged sound. His performance of this track, on the Jonathon Ross show, featuring Rae Morris instead of Merton, sounded much more fitting. Nevertheless, the track is a particular favourite of mine and the lyrics ‘if I ever find anyone half as good as you, I think maybe that will do’ were clearly written in the rawness of a recent heartache.
+
+Not all tracks on Jubilee Road are all doom and gloom- China Dolls is upbeat and uplifting. If you need that last push to confess your feelings for that girl in your seminar, Go Tell Her Now is there for you. Both songs feature a catchy riff to accompany Odell’s powerful vocals. Another track which displays Odell’s strong vocal talents is If You Wanna Love Somebody. Previously released as a single, the song features a gospel/soul backing choir, injecting some life into the largely piano-based sound.
+
+Despite offering a range of quality songs, the album does have some weaknesses. Tracks such as Queen of Diamonds and Wedding Day appear as relative filler tracks, offering nothing particularly new and exciting beyond a typical sad piano melody. The album overall contains some memorable songs yet doesn’t exactly leave you feeling blown away, with little in the way of artistic experimentation. It appears, for Odell’s next album, he should look further towards his influences of David Bowie and Bob Dylan, take a few risks and offer something slightly more experimental. Nevertheless, Jubilee Road offers a relaxed, moving and poignant listening experience and is a solid follow up from Odell’s successful first two albums.

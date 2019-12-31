@@ -1,0 +1,23 @@
+---
+title: "Head-banging, String-tickling Folk with The Oh Hellos"
+slug: "head-banging-string-tickling-folk-with-the-oh-hellos"
+date: "2018-02-14"
+author: "Imogen Hayward"
+rating: "undefined"
+---
+
+This past Friday, Exeter was lucky enough to be riled up and shook out by the Texas folk band, The Oh Hellos. The event itself was held at the Phoenix, adding a more casual vibe attracting a wide mix of locals, families and students. The Oh Hellos band was even seen milling about the bar checking out the venue beforehand. Slowly, the crowds finished their wine and pints and headed into the main room. The stage was set up with a number of instruments ranging from banjos, basses, two drum kits and a number of guitars. After a few minutes of patiently waiting the opening act strolled onto the stage.
+
+![Picture3](http://pearshapedexeter.com/wp-content/uploads/2018/02/Picture3.png)
+
+Carousel are an English folk band from Essex and were picked out of a lot of competition to open for The Oh Hellos UK tour. They gave a rousing performance, with songs covering topics such as mental health, family and chasing dreams. They are certainly up and comers in the folk world. They also had a brilliantly dry sense of humour that engaged with the audience which helped warm them up. After a great opening set they filled off-stage behind the curtain into the darkness.
+
+![Picture2](http://pearshapedexeter.com/wp-content/uploads/2018/02/Picture2.png)
+
+The lights went low and microphones and instruments were tested creating a weird mix of melodies under the low lights, as the audience waited patiently for the band to arrive. The stage cleared and smoke wafted into the room. Suddenly, Maggie and Tyler Heath casually jumped up onto the stage, Tyler carrying his guitar and Maggie smiling and waving at the audience. Not far behind them was their 9-piece band wearing a wacky range of vintage jumpers, moustaches and baseball hats. They said a quick hello and then went straight to making music. Their set contained a wide range of their songs, playing a number of energetic folk rock pieces and some of their calmer songs. Starting off with songs from their first album, Through the Deep Dark Valley (2012) they then launched into some of the more passionate and foot-stomping sounds such as ‘Eat You Alive’ and ‘Exeunt’ from their second full-length album Dear Wormwood (2015).
+
+Both Maggie and Tyler seemed slightly shy when they spoke directly to the audience but they soon relaxed, with Maggie dancing in a Celtic style around the stage. The siblings thanked the audience a number of times for coming and spoke a bit about their love of the UK and Ireland and touring around these islands. As the second half of the set progressed the band began to get more and more crazy and flamboyant in their music playing. The banjo player kept jumping up and down and running into the drum set and guitarist, which was unsurprising as when I saw them play live at the famous Red Rocks Amphitheatre back in May 2017 he even smashed his banjo at the end of the performance. The moustached bass player was also quite a character in his own right often flipping his instrument over to the wrong side when he wasn’t playing and pretending to strum to imaginary strings. They all just seemed to be a group of great friends playing together and the audience could feel the energy they were giving out, with most of them dancing and the band often running up to the edge of the stage and playing directly to them.
+
+Their new EP, Notos also made an appearance in the set. Notos was released at the end of 2017, named after the South wind. It is set to be followed by the EP, Eurus, in February 2018, named after the East wind. Anyone with a keen eye might guess that two more EPs might be following named after the West and North winds. The Oh Hellos fans have a lot to look forward to this year.
+
+After an hour and a half long set, the band all left the stage, but the crowd wanted more and banged on the stage and screamed for their return, jumping up and down. Soon Maggie and Tyler Heath returned, guitar in hand, without their band. They closed the show with a firm favourite amongst fans, Hello My Old Heart, the song that first got them noticed. It was a sweet and mellow ending to what had been a mosh-pit of a show. The Heaths sung their audience in lullaby-like tones preparing them for the farewell and then quietly smiling and waving goodbye they left the stage as understatedly as they had arrived. Much like their music The Oh Hellos in under two hours effortlessly excited, challenged and then calmed their audience with every song beautifully flowing into the next; a talent many entertainers never achieve.

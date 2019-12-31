@@ -1,0 +1,19 @@
+---
+title: "Isaac Gracie"
+slug: "isaac-gracie-2"
+date: "2018-12-10"
+author: "Shona Hickey"
+rating: "undefined"
+---
+
+19-year-old Billie Marten takes the stage at Exeter Phoenix, displaying none of the nervousness which might betray her age. In fact, she oozes a nonchalant confidence as she asks the audience if they have “any interesting facts about Exeter?”. This is duly met by the awkward silence of the British public being invited into an unanticipated interaction. But this isn’t enough for Marten, who retorts “why do you all live here then?”. Marten has no intention of pandering to the crowd, she knows her talent and intends to present us with a full display of her discography.
+
+Beginning with a better-known track Milk and Honey, she begins her assortment of melancholy, guitar-led songs, intermingled with a few livelier tracks. The songs are all beautifully lyrical, and her dulcet voice fills the stage, but I admit my essay-weary self found the tracks a little monotonous. Marten even seemed a little bored, but the audience was still fairly receptive. She is undoubtedly talented, but I’d be interested to see how she develops her live performances in the future.
+
+When Isaac Gracie’s turn arrives however, the atmosphere changes entirely. He enters to angelic music, with his distinctive long blonde hair and semi-unbuttoned shirt revealing a cross necklace. What an aesthetic. His presence has an immediate uplifting affect, as he thanks the crowd for coming and compliments Exeter’s lovely Christmas market (see, we knew there was a reason we stick around). He and his band launch the set with an impressively powerful rendition of _terrified_. The song choice provides a nice self-awareness of the fear Gracie felt during the start of his musical career as he sings “I'm terrified that maybe / I wasn't cut out for this”. He clearly has nothing to fear anymore as his next tracks reveal the expertise of a practised performer. He even handles a technical sound issue with a calm composure, re-starting his new track _broken wheel_ so the audience can appreciate it fully.
+
+The band then leave the stage for Gracie to perform a couple of tracks with only his acoustic guitar. Both songs are haunting and heart-breaking, and it’s a brilliant opportunity for Gracie to showcase his emotive lyricism. In _love ain’t always so good_ he sings “you know, that I know, that you know that I gave you more than I should”, while _hollow crown_ asks “why did we break down? Was I too vulnerable, too unsteady?”. As the band re-enter he thanks the audience for the respectful silence they gave him and describes us as ‘walking him through’ the songs.
+
+We’re treated to a brand-new song _little blue house_, alongside some really strong numbers from his eponymous album, including _silhouettes of you_ and _all in my mind_. _the death of you and I_, a track which feasibly shouldn’t work, proves to be a definite crowd-pleaser. The track begins as a leisurely narrative about running into an old lover in Paris but suddenly transcends into a heavy punk-rock chorus. The song is a brave synthesis of genres, but the transitions are confident and seamless.
+
+Gracie rounds off the set by belting out _show me love_, which is accompanied by an appreciative echo from the group of lads in the centre of the audience. The boys, who “left their toxic masculinity at the door” (Amy White, 2018) became an absolute highlight of the gig; swaying together in little huddle of intoxicated affection. They demand an encore and are appeased. Gracie returns to deliver a heartachingly beautiful rendition of _reverie_, which has a collected, considered precision to each note. Gracie thanks the audience again; “You guys are the best man, I had a tough gig and you carried me through it”, before exiting to a huge applause. Good vibes all round.

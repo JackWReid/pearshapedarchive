@@ -1,0 +1,17 @@
+---
+title: "Keith James Brings The Music of Leonard Cohen To The Phoenix"
+slug: "keith-james-brings-the-music-of-leonard-cohen-to-the-phoenix"
+date: "2017-06-17"
+author: "Oliver Rose"
+rating: "undefined"
+---
+
+Strolling out into a relaxed auditorium of cultural fringe-dwellers, Keith James wastes no time in getting everyone on the same page – making us feel safe by virtue of our marginal taste, and at home with a performer who shares it. ‘We’ve all been touched by the music of Leonard Cohen’ he says – it sounds like a sweeping assumption, but a quick scan of the Phoenix demographic this evening more or less confirms his point, as rows upon rows of middle-aged couples quietly nod in agreement, with me sitting at the back – the only one on my own.
+
+As he slips into a soft, acoustic arrangement of Everybody Knows, there’s an immediate, spiritual union – between James and his audience; in and amongst the audience itself; and of course, between everyone in earshot and the man himself – Leonard Cohen. James treats Cohen’s music brilliantly, (sometimes subtly and sometimes more obviously) re-arranging the songs into acoustic arrangements that use Cohen’s infamous flamenco chops and saccharin fingerpicking technique. Being as this is, a style used more on the earlier records, the music all sounds older than it is; more traditional; folksier. Whatever your personal opinion, it makes for a more interesting tribute act, eschewing the easy game of the copyist for the more creatively stimulating act of the interpreter. For the ‘80s tracks, it works wonders, side-lining the gimmicky charm of the originals for something that feels all the more genuine. Elsewhere, the effect is purely alternative; often saddening. Chelsea Hotel #2, when he gets to it, has never sounded quite so sombre; the victory of Cohen’s original is inverted for something that sounds softer, and subsequently, more regretful.
+
+This isn’t even James’ winning move, however. That commendation goes to his intimate conversation with the audience, before and after every song – analytical explanations of his personal favourites; anecdotes about performance; snippets of biography. James knows his audience; he comes out to meet them in the interval and he behaves sweetly with acute acknowledgement of their enthusiasm. He is in fact, so profoundly open and accessible a character, that his unexpected adherence to the rock ‘n’ roll cliché of the encore is jus that; a bit of unpretentious fun.
+
+He played everything you could want, and then some. The ‘greatest hits’ staples (Famous Blue Raincoat, Suzanne, Hey That’s No Way…) all made an appearance, and he even gave us a reduced Hallelujah before the house lights came up. In addition, he reworked some of the Spanish poet Federico García Lorca’s work to his own flamenco tunes, a cute interval from the Cohen that served only to demonstrate his superb understanding of the musician. On that note, I was incredibly lucky myself, to have my favourite of Cohen’s songs revived: the Lorca-appropriating Take This Waltz, whose new acoustic version was simply stellar.
+
+If you get the chance to see Keith James, do. Never before have I felt so humbled by a fellow appreciator of music – particularly difficult music, like Cohen’s. Besides, fan or otherwise – it’s quite something to see someone get an auditorium full of the emotionally disenfranchised singing along to So Long, Marianne.

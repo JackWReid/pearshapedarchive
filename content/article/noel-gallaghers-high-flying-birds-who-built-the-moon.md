@@ -1,0 +1,25 @@
+---
+title: "Noel Gallagher's High Flying Birds – Who Built The Moon?"
+slug: "noel-gallaghers-high-flying-birds-who-built-the-moon"
+date: "2017-11-23"
+author: "Liam Hill"
+rating: "4"
+---
+
+Noel Gallagher is undoubtedly one of the most important song writers and performers of the last thirty years. His work in particular with Oasis shaped a generation of music, broke records and changed peoples lives. With the decline of grunge, rock music dominated the charts through his era with Oasis when he mastered a formula of producing accessible rock with melodies that are undeniably infectious.
+
+It was obvious from the offset however, that his latest release was a step in a very different direction. His first two solo albums were by and large Oasis albums simply without the rest of the band. Admittedly the additions of saxophones and a generally less vivacious tone was somewhat less Oasis, but they remained distinctly in the realm of Gallagher. But this album, from the artwork to the first three songs we heard, is noticeably different.
+
+The recording process is largely down to this change. Working with David Holmes, who guided him away from his safety zone, was naturally going to produce a vastly different outcome. Holy Mountain was the first release off the album, and Noel seemed to grade its quality and success on the fact that it was a hit on the playground. I wasn’t convinced this was the best measure of success and on the first few listens I was anything but on a Holy Mountain. But after a few more listens I began to really enjoy this single. The lyrics aren’t the best example of Noel at his peak but that thunderous beat, but the riff on the flute and of course that sing-along melody brought me round. Admittedly it sounds a little like a Vaccines B-side, but I don’t see why this is such a bad thing.
+
+The album as a whole is very different to what we are used to with Noel. There is a far greater electronic presence, in particular with the use of synthesisers, a French tannoy style vocal on It’s A Beautiful World, and adventurous tones unheard on any previous Gallagher release. This is a distinct departure from Oasis, an attempt to change history rather than reinvent the glory days of what came before.
+
+But what particularly shines on Who Built The Moon? is the level of fun. By releasing the shackles of his traditional formula and pushing personal boundaries, a colourful vibrancy beams through. Take Keep On Reaching, a song with so much going on, and it sounds as though Gallagher has had a blast making it. Despite the lyrical influence of Stevie Wonder, "keep on reaching up for that higher ground", the backing vocals, melody, the pounding drum, the funky guitar and the brass section all scream momentum.
+
+This is true of the whole album in fact. There is a real sense of movement, and fortunately it is no delayed number 7 bus but a positive thrust forwards. She Taught Me How To Fly again has that propelling repetitive beat that encourages the album forward and keeps the listener engaged in dance, with a bass line reminiscent of Joy Division again showing the different direction of Gallagher on this release.
+
+If Love Is The Law shows yet another angle to this release; a Christmassy-Phil Spector tune with bells, a light airy melody and a harmonica solo. But as with the rest of the album, even the slightly darker sounding parts, the greater focus and attention to the music behind the melody makes the album sound and feel joyous and fun. Whilst the lyrics are lacklustre in places, the orchestra of sound behind him is so unusually developed for a Gallagher release, he is nearly always forgiven on this release.
+
+There are also three instrumentals on the album, opening track Fort Knox, Interlude (Wednesday Part 1) and End Credits (Wednesday Part 2). Separated at the start, middle and end, not only does this give the album a sense of progress but it also shows a different approach to the production. Rather than forcing lyrics and melody onto tracks, where the wall of sound is simply enough, Noel has left it be, giving a feeling of roundness to the overall product. Whilst I don’t imagine these being performed live, I can envision Fort Knox played proudly as an entrance for Gallagher like a WWE Superstar, clad with guitar and swagger.
+
+Whilst it’s easy to join the bandwagon of scissor-hating parka monkeys and moan that Noel has left the 90s, judging the album for what it is, it is a strong, different and interesting release. The phrase ‘don’t judge a book by its cover’ comes to mind with this one. I get the impression that people simply heard the teasers and made their minds up that the whole album was nonsense, which just isn’t the case. Of course this isn’t an Oasis album, but its also not quite an experimental album, it sits perfectly somewhere in-between the two, combining Noel’s ability to create captivating melodies with a beautifully wide and vivid landscape of sound behind him, showing a real progressive step forward for an artist that continues to encapsulate and inspire.

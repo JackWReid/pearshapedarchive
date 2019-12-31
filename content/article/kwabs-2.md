@@ -1,0 +1,45 @@
+---
+title: "Kwabs"
+slug: "kwabs-2"
+date: "2015-05-06"
+author: "Emily Pratten"
+rating: "undefined"
+---
+
+**_Just some general questions: how are you feeling, how’s the tour, how are you feeling about playing Bristol, all of that general stuff?_** The tour’s going really well. I guess we’ve been on tour for a while now because we did the Sam Smith thing as well. Now we’ve started my own headline tour and did a bunch of dates last week and the week before. It seems to be working. No one’s heard the album yet but it all seems to be going well and working fine. There’s a slightly bigger crowd, which is rewarding and I really like spreading the word.
+
+**_So you’re playing a lot from the album on the tour. How’s that going down?_** Yeah, absolutely. It’s cool, it’s going well. It’s always a bit nerve-wracking because you never know how people are going to react but I believe in the fans and I believe that they believe in what I do.
+
+**_Where was your favourite stop over in Europe then?_** Um…probably…oh I don’t know that’s a difficult one. Maybe Hamburg? It was just a great venue and we apparently made an ordinarily quite reserved crowd quite dynamic.
+
+**_What are your summer plans? What are the next few months looking like?_** We’re doing a lot of festivals, a load of them. We’re doing 30 or 40 festivals, most of which are in mainland Europe. We’ve got a couple in the UK and Ireland, like Latitude and Electric Picnic. It’s really, really busy, as well as stuff that I know will pop up in the mean time. All the free time I think I have will probably disappear.
+
+**_And you like being on the road?_** I do, I like being on the tour bus. I like being on the bus with the beds and the fridge and stuff. It’s cool and I suppose it’s a bit strange spending so much time with just ten people. You’re generally always around someone, but I’ve got a really good band and a really good vibe with them and they’re all really respectful so it always feels fine.
+
+**_What kind of stuff do you find yourself listening to when you’re on the bus?_** Oh wow. I don’t listen to too much music on my own, I mean as a group we do. Sometimes the last thing you want to do when you get home is listen to music after consuming music all day. But if I do, I do it with a purpose, so like, you know I play DJ for the band. So I start with the jams and the more up-tempo stuff and then I go to the slow jams gradually, like a wind down, and then everyone ends up going to sleep. Some early Lianne La Havas, some James Blake. I feel like music is so much about creating mood and eliciting emotions in people. So when I listen to it and I’m in work mode, i.e. being on tour, I use it to either relax or to get me pumped - there’s a real purpose to it.
+
+**_Your album is soon to be released, how long have you been working on that for?_** In totality probably like two and a half years I guess. Most of it is more recent work. There are one or two tracks which have stuck there from the very beginning. One track is one I wrote with my keyboard player called Lay Back which is now being produced by Dave Okumu, and the other one which is the earliest one before that is Perfect Ruin which I wrote while I was still at college.
+
+**_Is there going to be a vinyl release of the album?_** Yeah we’ve been talking about it, and yeah, almost definitely.
+
+**_How was working with SOHN? What’s he like?_** He’s cool. He’s great. I met him in the session that we did Last Stand on and it was just one of those things that just worked really quickly without any sort of thought. I didn’t know much about him other than he wrote The Wheel and that he was really good at what he did. It was my manager who set it up for me so I just sort of strolled into that session having had a bit of a weird day and just aired my grievances to him and he listened, and out of that came a connection musically and personally which allowed us to make good music together without really having to think about it too much.
+
+**_What would be your ultimate collaboration - of all time and currently and living?_** Of all time would probably be Donnie Hathaway - to sing with him and to just partake in his vocal chocolate deep thing. And currently, my ambitions of people I want to collaborate with aren’t massive names they’re just people I think are really, really good. Robyn, Sia, Tove Lo - people who write such individual songs and you can hear their individual voices.
+
+**_What is something about the industry, now that you’re in it, that you don’t like, or that you didn’t anticipate being a problem?_** I’m not a huge fan of the mismatch between creativity and commerciality - and when I say that I mean money. I feel that, as an artist, to think about money and commerciality in any sort of overt way would be a killer to my creativity - and that’s hard, but it’s just something that you have to navigate. It makes sense when you think about the long term and you have to think about having a long term career and how your career functions as a commercial prospect but it’s hard to think about as an artist. It kills creativity. Dollar signs to not write songs.
+
+**_Is there any particular song on the album you feel as though you have an affinity with?_** I’m really a fan of Look Over Your Shoulder, which I did with SOHN. It kind of taps into the darker side of what’s going on in my head I guess. And the other one is Perfect Ruin which I feel like as it stands as the best representation of me and whilst it was a stage choice maybe to put out as a single but it needs to happen and needed to happen so it stood out as an accurate representation of my music. It had to be heard and had to be there so it could be a symbol of what my artistry represents throughout the rest of my career. I feel like it’s a career tune. It’s something I’m really proud to have done and if I die tomorrow I’m proud to have done that.
+
+**_It’s really good. It’s so, so good. I can’t stress enough how good Perfect Ruin is. Obviously the video is very powerful - was that your idea initially or did a colleague conceive of it?_** With some videos I have a lot to say about what I what from them, but with others I think the song or the feeling of what I want to portray is potent enough in itself to inspire someone to do something amazing. So with Perfect Ruin I had an idea and that idea was that I wanted it to be beautiful and overwhelming. So when George Belfield presented the idea to me to go to Sweden I didn’t know what to expect or how cold it would be.
+
+**_It looked freezing. How cold was it? _** It was minus 20 degrees and we did 12 hours each day.
+
+**_Did you get ill?_** I didn’t get ill, surprisingly. I did actually get a little bit of frostbite in my right ear. A little bit started peeling off after about a week, it was nasty.
+
+**_My God. The things you do for your craft._** Well yeah the thing is, is that it was one of the hardest things I’ve ever done in my life. It was ridiculous. As a physical feat it just didn't make any sense for me to be doing this, especially around all the other stuff I was doing. I had gigs to do and I had recording to do. But it just served the song so much for me to have such a genuine struggle.
+
+**_You obviously don’t have to over share but could you give any indication about where you were coming from or what you were thinking about when you wrote that song? Feel free to just say no._** I guess it’s my instinct to be a little bit coy about what it means but what I will say is that people think it’s a love story and it’s not. It’s about being someone who shocks themselves with the way they treat other people sometimes. It’s not that they're bad, it’s not that they're unpleasant, they just need to check themselves. To check their humanity and make sure they don’t hurt themselves by hurting other people.
+
+**_What were you listening to when you were growing up?_** I listened to chart music when I was like nine and then when I got to my teens I started listening to a lot of alternative rock bands like Arctic Monkeys and The Strokes and We Are Scientists. I started listening to Muse and wearing skinny jeans.
+
+**_I did that. I was so invested. I was like “mum I’m getting a Paramore tattoo.”_** I mean, yeah, you have your phases and my phases have really stuck with me and they’re still really important. And then after that I got into jazz and I actually studied Jazz for a while. I really enjoyed Ella Fitzgerald and Frank Sinatra and Mel Torme and that sort of thing and throughout that time I was engaged with stuff that connected more with my voice and the tone of my voice, i.e. soul and gospel, which was always there but I kind of took it for granted that I could sing like that. I never tried to sing like Julian Casablancas. I was working out the other stuff first. I discovered the soul records a bit later. And all these things sort of make up my music collection and my musical heritage and ultimately what kind of makes my music hard to define but also quite distinctive.

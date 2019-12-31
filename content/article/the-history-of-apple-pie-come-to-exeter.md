@@ -1,0 +1,15 @@
+---
+title: "The History Of Apple Pie Come To Exeter"
+slug: "the-history-of-apple-pie-come-to-exeter"
+date: "2014-10-13"
+author: "Alice Woods"
+rating: "undefined"
+---
+
+The first time I saw The History Of Apple Pie was in a tiny box room above a pub in Newcastle, where even there, their hazy, dream-like music captivated the fairly small, yet dedicated crowd who were in attendance. It was for this reason that I came to see them again, this time at a favourite student haunt, Cavern.
+
+In Exeter, THOAP were just about to finish their UK tour, promoting their new album, Feel Something, a follow up to 2013’s Out Of View. Their music is characterised by mellow guitars, fuzz pedals, and the delicate vocals of the lead singer, Stephanie Min, all of which create an overwhelmingly ethereal sound which is especially picked up on in their new album. There are echoes of My Bloody Valentine in the melodic yet distorted guitar sounds, but nevertheless, THOAP still manage to create their own spin on dream-pop that makes them stand out from the myriad of indie bands that arise from their home city of London. Their songs have also featured guest musicians such as Joshua Hayward of The Horrors and recently, Gary Jarman of The Cribs. Thus, their rising popularity has even been picked up on by the stalwarts of British indie music.
+
+As to whether this otherworldly, shoegaze-influenced sound has carried over well into their live shows, I can say without a doubt that the sound is improved. Despite being one guitarist short, THOAP managed to captivate and command the attention of the entire audience at Cavern, almost as if they’d been captured in a reverie. The songs seemed to segue together exquisitely; there were no awkward breaks or constant twiddling or changing of chords. The set list, while cut slightly short due to the aforementioned absence of their guitarist, did not disappoint, including fan favourites such as Glitch from their first album, and new tracks such as Tame, Jamais Vu, and Special Girl. Stephanie Min’s lullaby-like voice resonated well and drew in the audience, before the set climaxed with the gorgeous Before You Reach The End. This song ended with a drawn-out, eloquent guitar solo from the present guitarist, Jerome Watson; the danger of THOAP’s sound is that the set could have faded out immemorably, yet this solo drew it to a close on a high note.
+
+A special mention must be made for the supports, Skeleton Frames, The New Lights, and especially Beverley Macca, who hail from Exeter themselves. The latter managed to balance a similar lulling sound to THOAP before breaking into heavy, hazy guitar noises, and are worth keeping tabs on. Overall, The History of Apple Pie’s show justifies their rise in popularity, showcasing their unique sound that sounds hazy and otherworldly, without being too lethargic, and fully justifying a purchase of their new album, Feel Something. Without a doubt, they are one of the most intriguing small indie bands to have emerged in recent years, and their live shows do this justice.

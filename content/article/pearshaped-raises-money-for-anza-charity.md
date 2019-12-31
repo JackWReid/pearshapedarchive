@@ -1,0 +1,17 @@
+---
+title: "PearShaped Raises Money For Anza Charity"
+slug: "pearshaped-raises-money-for-anza-charity"
+date: "2015-02-02"
+author: "Hannah Strode"
+rating: "undefined"
+---
+
+The PearShaped Anza Benefit saw a chance for me to revive my love of small venue gigs, as I have been slacking recently. It also marked my first time hearing Soul Choir live (something which I feel I should have done much sooner) and I was not disappointed on either front.
+
+I pied-piper-ed a few of my housemates down with me, and we walked into the cosy heart of Cavern to be graced with the gentle sounds of Peacock Affect. As we settled into the pews (literally) at the back of the room, I fully appreciated how well the sound system and acoustics of Cavern complemented this style of soft ‘indie’. It washed over the room, and George had a muted but pleasant stage presence. While some of the lyrics maybe would have appealed more to my younger self in their down-heartedness (which I often find with ‘indie’ music now), he managed to couple this with a certain light tone, which I appreciated. Along with his excellent technical musicianship and good singing voice, this was a really enjoyable set, and I nabbed myself a CD to take home afterwards, which has become my new study soundtrack.
+
+After the entire room made another trip to the bar, the University’s own Soul Choir took to the stage (and the floor in front of it). I was pretty excited for them to perform as I have heard many good things from friends, and my expectations were smashed through like a proverbial glass ceiling of excellence. From start to finish, the entire choir swayed to and fro (for which my housemate and I commended their stamina), and the set was filled with soul classics. Their sound was flawless, the various parts blending to create a wonderful rich harmony. But what really enthralled me was the solos, which were all technically excellent and awe-worthy at points. The inclusion of The Beatles’ With A Little Help From My Friends gave everyone a great opportunity to serenade each other in the crowd, and showed how adaptable the soulful sound is. Everyone I spoke to said they were hugely impressed, and it really was a performance not to be missed.
+
+I didn’t realise until Drive In Saturday came (back) to the stage that they had been playing with Soul Choir, but this was a really nice touch to the evening. It gave some cohesion and really added to the Choir’s sound, so I commend whoever had that good idea! As soon as they started their set, their boyish cheek was obvious, and coupled with their White Lies-esque style made for a really enjoyable set. I hadn’t heard any of their stuff before (due to an unsuccessful Google prior to the night, filled only with links to Bowie’s song of the same name) and thankfully, I didn’t have one of those gigs where I felt my experience was lacking due to not knowing the songs. The lead singer had a lively stage presence and they really knew how to give off the "We’re an indie band!" feel. Each one of them was great at what they did musically, and it really felt like they were thoroughly enjoying playing for us, which is so important.
+
+All in all, I had a really fantastic night, and wasn’t disappointed with a single act. Even better, it was all in aid of charity, and hopefully a great amount was raised for Anza, who have a fantastic cause. In conclusion, you should all wish you had been there. I walked away from the night with my inner indie-kid fully satisfied and waiting for the next PearShaped event (of course).

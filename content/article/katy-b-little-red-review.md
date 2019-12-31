@@ -1,0 +1,15 @@
+---
+title: "Katy B – Little Red"
+slug: "katy-b-little-red-review"
+date: "2014-02-07"
+author: "Matt Hacke"
+rating: "2.5"
+---
+
+Authenticity. There’s something that doesn’t stick right when a track doesn’t have this all-important facet. Imagine Mumford & Sons returning from indefinite hiatus to spearhead a 90s rave revival, or Asher Roth rapping about his ‘hood’ back home. Both would seem rather ridiculous. This is the problem that Katy B would always face with a second album, on the back of her enormously successful first work. On A Mission teetered on the brink of concept piece, as the lyrics vividly painted relatable images of a young clubber. One wonders how Katy, since her meteoric rise into the public eye, could repeat such authentic content. She is no longer a faceless figure on the dance floor.
+
+It’s ironic then just how well Katy manages to reassume the persona of her debut. Aaliyah, a surviving track from the stunning stopgap EP Danger last year, is an excellent reworking of Dolly Parton’s Jolene narrative, and is perhaps the best storytelling in Little Red. The hypnotic repetition of “Why won’t he play a song for me?” compliments the pulsing house-lite chord progression, whilst small yet clear tweaks to the arrangement keep the track fresh for those of us who have been familiar with it for a year or so. Meanwhile, flagship single 3AM is stunning, portraying that inevitable comedown towards the end of a night, wrapped in glitzy electro-pop. In both these tracks, Katy confidently retreads the subject matter of her first album, and luckily this glance-back is extremely effective.
+
+Whilst the aforementioned tracks are typical of Katy’s potent style, the rest of Little Red seems to suffer from something of an identity crisis. Recent single Crying For No Reason is perhaps the most high-profile example; an archetypal, piano-led ballad, which sounds like an Adele collaboration with Frankmusik. Whilst it is by no means a bad track, it jars with the songs preceding and succeeding it – it just doesn’t sound like Katy B. Indeed Crying for No Reason seems to foreshadow unnecessary bombast of the album’s tail end, and Little Red deteriorates all too quickly. The second half is emphatically mediocre, and even a collaboration with Sampha cannot avoid being rather dreary. The bite of I Like You, Next Thing and indeed the whole of her debut album is lost by the time we get to the intensely banal Emotion. By the end of Little Red I was praying Katy wasn’t planning to do an ‘Ellie Goulding’, and if the later tracks are anything to go by, the future doesn’t look bright.
+
+I guess it’s a poisoned chalice. If this were a retreading of her first album throughout, I’d accuse her of stagnation. Yet here we are with an uncomfortable mix of vintage and landfill. Tracks such as 5AM give me cause for tentative optimism, however as Katy continues her meteoric rise, repeating this authenticity will only become harder. Whilst I enjoyed Little Red, I couldn’t help but feel disappointed.

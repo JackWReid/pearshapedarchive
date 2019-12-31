@@ -1,0 +1,19 @@
+---
+title: "Sampha - Process"
+slug: "sampha-process"
+date: "2017-02-03"
+author: "Sophie Bauer-Schlichtegroll"
+rating: "4.5"
+---
+
+Process is Sampha’s astounding debut record, its melancholy undertones timely for the cynicism brought about by this year’s events so far. Largely an electro-soul meditation on the beginnings and breakings of relationships, there’s no denying that this album is the result of deep, personal introspection - just look at the title. Indeed, Sampha Sisay recently endured heavy loss with his mother’s death in September 2015, and his grief is heard as his voice quivers in every song. While listening through it, you are struck by how seamlessly each track fades into the next (Take Me Inside literally feeds directly into Reverse Faults). It seems that Process is something that is meant to be heard in its entirety - and at only 41 minutes, that isn’t such a mean feat.
+
+So, who is Sampha? His presence on the music scene is indistinct but prominent to those-who-know, appearing on tracks by Solange, Drake, Frank Ocean, SBTRKT and Kanye West since his 2010 debut EP Sundaza. Even this album cover is impressively misleading, not being an entirely realistic rendering of the artist as half of the image reflects onto itself. Musically, his style even recalls the experimental modernism I’ve come to expect from Soundcloud artists. While the tracks on Process seem, upon first listen, a random, layered melange of instruments, melodies and falsetto, engaging with each song stamps out any suspicion that an amateur is at work.
+
+Ominously, the album begins with what sounds like a beeping hospital monitor in the track Plastic 100°C, before steadily drawing together jarring melodies to very dissonant effect. The soundbite is presumably a reference to his late mother’s illness and Sampha’s own medical troubles. It could also be understood as a criticism of overbearing emotional intimacy or even the suffocating effects of fame. Plastic 100°C certainly conveys the heavy emotions triggered by both with an unwavering bass-line and amplified background voices. In this piece along with a few others Sampha explores the oppositional forces of vulnerability and self-destruction.
+
+Take Me Inside and Incomplete Kisses explore the uncertainty that accompanies new relationships and touch upon a longing for intimacy. They both express apprehensive undertones through jumpy, discordant notes and strained vocals that close the song in a fading fashion. At the other end of the spectrum comes Under, telling the tale of infatuation with a “sophisticated, bitter queen” in the style of mainstream hip-hop. Here, it’s the increasingly overlapping grating sounds that convey a total destruction of autonomy, reminding us of Sampha’s mastery at creating all-encompassing atmosphere.
+
+You may have heard No One Knows Me (Like The Piano) recently. Either by stumbling across it on Spotify, or have it float into your life through a serendipitous YouTube playlist. If you haven’t been so lucky, it is this record’s shining star. Being a tribute to his mother’s influence on his music, it’s fitting as the most melodious track on Process, glowing all the while with a sense of nostalgia: “no one knows me like the piano / in my mother’s home”. This yearning for the past comes up again in a few other songs, including the wistful fragility of Kora Sings, and the equally regretful and guilt-ridden Timmy’s Prayer.
+
+As the album closes on What Shouldn’t I Be?, you hear his longing for a family connection that is no more and feel the ambivalence towards his assent to success. May this not be the last of what we hear from Sampha. Make no mistake, Process probably won’t send you skipping, but it is one of those albums that comes along every few years with the capacity to stir you to the core - if you give it the chance to.

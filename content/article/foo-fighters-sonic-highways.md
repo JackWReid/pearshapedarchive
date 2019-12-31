@@ -1,0 +1,19 @@
+---
+title: "Foo Fighters - Sonic Highways"
+slug: "foo-fighters-sonic-highways"
+date: "2014-11-10"
+author: "Paige Evans"
+rating: "3.5"
+---
+
+Dave Grohl has always been an artist known for pushing the boundaries within each album he releases. I mean, nothing Grohl has ever done can be considered unoriginal, small, or done before. With this in mind, Grohl illustrates his way of moving forward by building the concept of an American cross-country album – travelling across the US to record each song in a different city, featuring local legends and getting inspired through this experience. And hell, let’s get HBO in and make it a full on documentary. But, yes, a great way to commemorate the 20th anniversary. And yes, the concept is brilliant. Oh, and you can’t deny the album is pretty decent. But whether Grohl’s idea had much effect on how great the Foos music is? Not convinced.
+
+Still, as a huge lover of the Foo Fighters, I can only really sing praises regarding the record. Opening the album with Something For Nothing, the listeners are teased with a bit of everything that makes this band so great. It has the chilling guitar riffs, courtesy of Rick Nielsen of Cheap Trick, and melodic tone, followed by the progression to the traditional ‘Grohl-belt’ which makes the fans go mad. The Feast And Famine continues where the opening leaves off – the aggressive vocals, dominant guitars, and strong drum beats move the album into utter rocker status.
+
+But the point still remains. Although accompanied by Grohl’s huge concept, all eight songs still hold the Foo essence. Hard hitting bridges, growling instrumentals, and dynamic build-ups - which are seen as a thread across their work - are still very much there. This is fab to hear, don’t get me wrong - you shouldn’t fix what’s not broken. But the argument here is – did Grohl achieve the impact he wanted, the creation of ‘a love letter to the history of American music’? It seems that his guests are drowned out; they’ve had no real impression.
+
+Yet, as I kept on listening, I began to feel like this criticism was too harsh. Damn, listening to Congregation really does show that Grohl was inspired along his big American travels. Pulled back and featuring country artist, Zac Brown, the setting of Nashville is mixed beautifully with the standard Foo presence, giving the album a little bit of exotic flavour that was promised. And admittedly, What Did I Do?/God As My Witness provides a clear central element to the album; a catchy anthem-like tune which is a definite strong point to the record. Still, Austin’s Gary Clark Jr. is barely noticeable, but the track is full of feeling and lovely licks – thumbs up to Grohl.
+
+This being said, the latter half of Sonic Highways is undoubtedly the most adventurous and most commendable. Throughout I Am A River and Subterranean, the listeners grasp (finally) what makes Grohl so intense and worth watching – dark subject matter and hard-hitting emotion. Subterranean is dream-like with its acoustic feel, preparing us for the ‘oh my wow’ finale of I Am A River, where over seven epic minutes, Grohl breaks us down with his heartfelt lyrics and insane craftsmanship of musical genius. Following this conclusion, I did sit down with my late night cup of tea, nodded to myself, and thought ‘Bravo’.
+
+So, in short, nicely done, Foos. You’ve created once again, an amazing album which is wholly representative of your music and keeps the fans oh, so happy. Seriously, that’s not sarcasm, I really enjoy Sonic Highways. But whether the concept was lived up to – maybe. Yes, elements of the album were inspiring for American music, but sometimes this had to be searched for, and that’s no fun when listening to music. More risks could have been taken; no songs made me go wild like on Wasting Light. Still, Grohl showed light and shade, soft lyrics, and belting aggression, and overall amazing artistry. Give it a listen; it is definitely worth an ear.

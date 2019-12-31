@@ -1,0 +1,19 @@
+---
+title: "Rudimental - We The Generation"
+slug: "rudimental-we-the-generation"
+date: "2015-10-02"
+author: "Agnes Emeney"
+rating: "4.8"
+---
+
+What always strikes me as the crowning glory of Rudimental, as was the case with their debut album Home, is their utter refusal to confine themselves to just one genre. This, and the massive lineup of collaborative artists they have at their fingertips, makes Rudimental the chart-topping, household name that they are. We The Generation is no exception.
+
+The group's sophomore album sees appearances from resident smoky vocalists Will Heard, Ella Eyre, and Sinead Harnett, as well as a host of new names, including the gorgeous Mahalia (who I have had the absolute pleasure of seeing live – I can therefore confirm that Rudimental have hit gold putting her on their title track).
+
+Of course, present on the album are the usual soaring drum & bass tracks; this time they come in the form of opening number I Will For Love, Never Let You Go, and Too Cool (Ella Eyre's only spot on the album). It's true the London quartet's strength does seem to lie in producing these synth-heavy, atmospheric numbers that lend themselves to soul-lifting live performances, as seen with previous singles Feel The Love and Waiting All Night. However, although these are the songs that come to mind when thinking of Rudimental's success, I think it would be wrong to instantly label them as the _best_ tracks on this album.
+
+In the second half of the album comes the track Needn't Speak featuring the lovely Lianne La Havas. This song is a perfect example of Rudimental's sheer courage to take their songs in any direction. La Havas brings her ethereal, organic soulfulness to funk guitars and held-back drums, before the song unexpectedly drops into one of their signature drum & bass sections for a moment, then returns to the bouncing funk beat. Other examples of such risk taking include New Day, an absolutely amazing re-imagination of the late Bobby Womack's New Day Dawning, and, one of my favourites, Common Emotion, featuring and co-written by one of my favourite pop producers and writers, MNEK, which plays with funk baselines and R&B melodies.
+
+We The Generation's experimentation is so often successful, you wonder why everyone isn't doing it. Having said that, this record is also littered with undeniably brilliant pop tunes. Ed Sheeran brings his genius to the infectious Lay It All On Me, as well as an eye-opening remix of his own single Bloodstream – you didn't think an Ed Sheeran song could get _better_, did you? Go Far, Foreign World, and Treading On Water are all arguably hits by themselves. But, by far my favourite song on the album, purely for how good it makes me feel, is We The Generation. Eighteen-year-old Mahalia is a perfect new candidate not just for Rudimental, but for the voice of our generation: "We the generation and we have had enough." There is no questioning why this track was chosen for the title of this album; for me it encompasses what Rudimental have always been about.
+
+What I love about this record, and I remember feeling the same about the last one, is the sense of family that comes with having so many different artists and styles all in one place. This album manages to feel not like an incoherent compilation of songs, but like an hour-and-twenty-minute-long celebration of music and artists, with everyone bringing something new to the table. The members of Rudimental bring their skills in modern pop production, instrumentation and arrangement, and their guest artists bring whatever it is that they want to represent in their stage of life, their musical direction or just their own sound. And it works. We The Generation is in fact a record that crosses generations, shows there should be no limits to what one album can achieve, and celebrates music and everything it's about. I _love_ this album. Go and buy it. Now.

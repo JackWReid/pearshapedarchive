@@ -1,0 +1,21 @@
+---
+title: "Kate Boy - One"
+slug: "kate-boy-one"
+date: "2015-11-06"
+author: "Oliver Rose"
+rating: "3"
+---
+
+This year has been very Scandinavian for me.
+
+In February, electro Baroque-pop sweetheart Susanne Sundfør released the near-flawless Ten Love Songs on EMI Norway; a few months later, I discovered long-defunct Swedish minimal-wave duo Schmaalhans Weltraum, who contacted me through Facebook to confirm that they’re in the planning stages for a 7” box-set; to top it off, a-Ha released the 30th anniversary edition of their debut Hunting High And Low_,_ unveiling a plethora of demos, early versions and 12” extended mixes. “Glädje!”
+
+Now, as if by magic, the mysterious Kate Boy are dropping their debut. Hailing from Stockholm, this synthpop duo are full of those signature pop sensibilities we’ve traditionally come to expect from Swedish musical exports; ABBA, Roxette, Robyn – all are famed for their seemingly bottomless trove of catchy melodies, and with this album, Kate Boy have well and truly earned a place on the song-writing podium alongside these acts. Similarly intriguing is the outrageous polish on the production front here – One_,_ although far from completely perfect (as I’ll soon explain), is the best _sounding_ record I’ve heard this year (don’t be misled though – Alien3 is one of the best _looking_ films I’ve ever seen, and we all know how that one ends up going…)
+
+Using home-built synthesisers and borrowing from the visual art-styles of Pia Mannikko, Yves Klein and David Lynch amidst others, Kate Boy strike an exceptional balance, in both their music and visual aesthetic, between the aggressively artistic and the disturbingly winsome (call me pretentious if you like, but this _surely_ is the year’s definitive bohemian soundtrack).
+
+I’ve been excitedly following the band’s slow trickle of releases thus-far, beginning with the Northern Lights EP in 2013, which contained a good deal of the songs that have materialised on this album. The Kate Boy sound is a kind of tub-thumping electronica, characterised by gigantic, lumbering percussion and zippy melodies pip-popping along in the top layer of the swirling, whirlwind mix. Such is the theatrical, anthemic stadium-size of this record’s sound, that one can’t help but draw comparisons with Glaswegian synth trio Chvrches, whose matching 1:2 boy-girl ratio in the lineup is but one of a million similarities, not least of which is an unfortunate capacity for repetitiveness – frequently I muddle up the names of my favourite tracks here, and, to be honest, I couldn't name them off the top of my head. In this respect then, One is a step backward for Kate Boy, whose use of the EP format up until this point, has served them tremendously well; five Kate Boy tracks in a row is fine – eleven drags.
+
+Frustratingly, some of the best textures on this whole record are on the digital edition bonus tracks, which not only don’t count towards the scoring of the core LP, but which also take eleven tracks to reach: In Your Eyes is a fat-sounding and highly percussive track, its synth-leads reminiscent of tribal instruments, its vocals melancholically drone-like and reflective. Likewise, Temporary Gold features this fluttering, oscillatory din in its pre-chorus whose shiny production and place in the glittering blend are frankly awesome.
+
+These are small, but fairly fundamental gripes and annoyingly, this is a collection that falls under that strange category where eleven great songs make an only-middling album – this would’ve made a stunning set of EPs or singles, it’s just that the forty-or-so minutes take their toll when listened to all in one sitting. Still, a lack of respect for the format of the long-player can’t totally ruin what is ultimately a very experimental dynamic, and one that’s easy to enjoy – it rewards those who are _au fait_ with the band’s obvious influences, with telltale sonic signatures that are borrowed and adapted artfully (the menace of Depeche Mode; the resonant drums of Chvrches; the textural breadth of Nine Inch Nails). So if I had to sum up, One is a lot of things – some great, a fair few not so great – but mostly, it’s a promising start. Hopefully Kate Boy can learn from its weaker facets and _truly_ slay the competition as sophomores.

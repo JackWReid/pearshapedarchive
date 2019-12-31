@@ -1,0 +1,15 @@
+---
+title: "A View From The Top #21"
+slug: "a-view-from-the-top-21"
+date: "2016-02-28"
+author: "Matthew Graham"
+rating: "undefined"
+---
+
+Every once in a while, and seemingly out of the blue, the nation’s heartstrings will be unanimously plucked by an emotionally wrought, melody-driven acoustic single that’s broken ranks from the synth and dance driven Top 40. Tracks such as Passenger’s Let Her Go and Ed Sheeran’s The A Team immediately spring to mind as notable instances of this occurrence. More often than not, after being rinsed by every radio station in the country, that particular song will be tacked onto any emotional bit of TV producers can get their hands on, before sinking into obscurity a few months later. As such, the past three weeks at the number one spot mark the beginning, I’m sure, for Danish pop band Lukas Graham’s turn at providing tear-jerking background music with their twinkly piano ballad 7 Years.
+
+As the previous two entries of this column have pointed out, the song’s premise is simple enough. It nostalgically looks through poignant chapters in the singer’s life using the refrain “Once I was \_\_\_ years old”, before culminating in a yearning desire to know what the future holds, complete with overstrained vocals to add emphasis on an otherwise samey melody. 7 Years is an undeniably catchy song and it’s apparent universality speaks on some level to all people, proving you don’t need to overly sexualise lyrics and twerking to get noticed in the charts.
+
+Having said that, after a few listens I was already fairly bored with it. There isn’t a lot more to 7 Years that hasn’t already been said here on Pearshaped. It’s essentially a safe pop melody that’s been packaged as a bittersweet indie/acoustic record. No doubt I’ll be singing along whenever I hear it, but it’s the kind of track next year’s X-Factor hopefuls will already be practising as their heart-wrenching rendition in memory of their dead dad or some other sob story. Knowing the nature of the beast, I expect Lukas Graham will hold their position within the charts for a few weeks yet, until everyone begins to question who is actually still left to buy this and keep it there? If I’m proved wrong, it would be a pleasant surprise.
+
+Turning to look at the rest of the charts, Sia’s Chandelier has crept back in at Number 29, undoubtedly thanks to her recent guest appearance on James Corden’s brilliant Carpool Karaoke series, demonstrating not only an incredible voice but also a bizarre talent for holding eggs on the backs of her hands. Further up, I’m quite pleased to see the summery Lush Life by Zara Larsson (a guilty pleasure of mine) has made it to Number 6. And despite having mentioned a few weeks ago that Rihanna seemed to have miss-timed the release of Work, its position at Number 2 is a welcome sight. While it would have been quite nice to see something more Caribbean-oriented representing the top spot, I feel the track has still gained the recognition it deserves. How Fast Car is still lurking in the Top 3 is still beyond me; I’d much prefer another week of 7 Years at Number 1. Still, I’m just keeping my fingers crossed for Riri!

@@ -1,0 +1,25 @@
+---
+title: "Delta Rae - After It All"
+slug: "delta-rae-after-it-all"
+date: "2015-04-07"
+author: "Charlotte Morrison"
+rating: "2.5"
+---
+
+Delta Rae enjoyed moderate success with their 2011 debut single Bottom Of The River, a spooky, percussive, and fantastically melodic track, which features layered harmonies and a searing, almost demonic female lead vocal. It’s a killer song with a unique and thrilling atmosphere. I confess that this was the only song by Delta Rae that I knew coming into this review. Sadly, there is very little material on their sophomore release, After It All, that sounds remotely like Bottom Of The River and so I was a quite disappointed. But that’s not to say it's a bad album.
+
+The record begins with Anthem, which acts as something of a preface to the album, being just over a minute long. The track quickly grows from sweet piano chords into a rather (ahem) anthemic chorus of soaring "ahs", military-style drums, and triumphant brass and strings. Run seems like the true opener of the album. It is a momentous-sounding track, driven by a bouncy string motif, beating bass drums, and a very catchy and exciting female vocal, that of Brittany Hölljes. I feel this song would fit into a driving scene in a film about a freeing road trip across the American South (like a slightly less good Thelma and Louise). Outlaws follows in this vein with the same momentum and a victorious-sounding brass section very reminiscent of Of Mice and Men’s Little Talks. It’s a strong track but I’m a bit turned off when the song’s male singer brags that he’s “Giving the finger to Death himself,” which seems a bit childish since I doubt Death really gives a fuck.
+
+Scared, the album’s lead single, is a catchy enough track with a cool synth sound throughout and a creepy vibe affected by the female vocal’s wonderfully hysterical background "oohs” (again, this is Brittany). I’m a bit confused as to why it was lead single though since this is far from the album’s strongest track to my ears. Chasing Twisters, for instance, sung by the band’s other female vocalist, Liz Hopkins, would have made a better single. It’s a powerhouse track about self-destructive tendencies – people love songs about that. Plus its cowboy vibe with talk of horses, whiskey and the devil (what else do people talk about in the American Deep South?) and the passionate vengeance in Liz’s voice are very rousing.
+
+Bethlehem Steel strikes me as something of a Bon Jovi pastiche (think, It’s My Life). It’s the tale of a working class boy just trying to get by as a steel miner even though there’s no more steel. Though this track has the sort of attitude and energy that gets belted out at concerts - I picture it playing at an outdoor gig at night with someone barbecuing in the background – it doesn’t strike me as particularly original.
+
+In fact, it’s probably at around this point that it strikes me that none of the album’s material is particularly original. Upon realising this I begin to bore of the band’s formulaic song structures and unoriginal lyrics. I also start to tire of their production formula in which nearly every song has massive drums on the chorus and four-way vocal harmonies, which, though impressive, do get a bit stale.
+
+Dead End Road changes pace ever so slightly since it’s just an adorable, melancholy country love song, in the vein of Lady Antebellum or The Band Perry, about a relationship that the singer doesn’t want to end but knows she must – perhaps a bit cliché, but well effected.
+
+After a couple more good-but-not-great songs, I Will Never Die creeps onto the scene like something out of a musically bewitched swamp; the only thing that reminds me of Bottom Of The River. It has the strong bass and drum section of the other songs but here it is used to reinforce the powerful spookiness that first drew me to the band. Brittany’s voice taunts, teases, and threatens like a sorceress, showing off her striking range.
+
+But this is followed by The Meaning Of It All, which I frankly hate. It’s a cheesy, over-reaching, faux-emotional pop song with boring arpeggiated piano chords and the line “We all want love” sung over and over.
+
+The main fault of After It All is that it is just not very memorable. Even after multiple listens I struggled to remember which song was which and none of the lyrics really stuck out. Not to mention the fact that I didn’t even notice there were two different male singers until I watched an interview with the band. To be honest, I’m not sure I could distinguish either of the male Delta Rae singers from the male vocalists of a host of contemporary folk and country bands. Not surprisingly, I preferred the songs on which the girls sing lead. Both female Delta Rae singers have fantastic and interesting voices. However, a band can’t be supported by the vocal talent of only two of its six members. This is not an album that I’d go out of my way to recommend to anyone, not because it’s bad but because it’s so average. I would still recommend listening to Bottom Of The River, though.

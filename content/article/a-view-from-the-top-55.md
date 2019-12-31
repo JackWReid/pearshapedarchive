@@ -1,0 +1,15 @@
+---
+title: "A View From The Top #55"
+slug: "a-view-from-the-top-55"
+date: "2016-10-23"
+author: "Srinandini Mukherjee"
+rating: "undefined"
+---
+
+I’ll admit, I adore James Arthur’s Say You Won’t Let Go, and enjoyed its three-week run at the top. but there’s only so much you can say about a sweet, acoustic, love song. I was beyond pleased to discover Little Mix’s Shout Out To My Ex, which has just entered the charts this week at the number one spot. Even before listening to the actual song, I was just pleased that the title itself indicates a very different vibe from the previous three number one singles.
+
+I have enjoyed tracks such as Black Magic by Little Mix in the past, for their bubbly, sing-along kind of feel, and this track still plays to that strength: It’s pleasant enough to listen to once in a while, and I can already see teenagers recovering from break-ups everywhere blaring this song in the background and screaming along with their friends. It’s disappointing, but not at all surprising to see that it maintains a lot of the successful-pop-song elements. However, the one glaring issue with this track is that it tries too hard to fit absolutely everything into one song. It attempts to yell, "I’m over him" with snarky lines such as, "I hope she gettin’ better sex/hope she ain’t fakin’ it like I did" and "Ain’t sure I loved you anyway", while also admitting that, "You made my heart break and that made me who I am" and "Took four long years to call it quits". At one point, the lines "Yeah yeah, that hurt me, I’ll admit" and "Forget that boy, I’m over it" actually follow one another. Which is it? While trying to simultaneously channel every post-breakup sentiment, and relate to everyone, Little Mix sadly just ends up contradicting themselves, and sounding unsure about what the relationship actually meant to them.
+
+Having an upbeat-major-key background music with lyrics about a break-up has been quite popular recently, with the main example being Adele’s Send My Love To Your New Lover, which simply and skilfully combines the two. In the case of Shout Out To My Ex, I’d say that it doesn’t exactly sound bad, but given the disarray of sentiments in the song, it just adds to the muddled feel. Besides, something that’s so wonderful about many breakup tracks is how the instruments can take a backseat, and the focus is truly left on the emotions being conveyed through the lyrics. Here, the music is almost overwhelming, trying to convince the listener a little too hard to feel happy while listening to the song.
+
+Given the stagnant state of the charts, there aren’t too many new tracks to talk about in the rest of the top 10. One which I listened to for the first time and liked, however, was Starving by Hailee Steinfield, Grey, and Zedd. Besides the strong vocals, this track had, for the most part, the understated approach I was craving from Shout Out To My Ex. But to hit the number one spot, one must adhere to the same, mass-produced-pop music formula. Isn’t that something we should know by now?

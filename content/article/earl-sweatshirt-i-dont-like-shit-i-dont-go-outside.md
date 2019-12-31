@@ -1,0 +1,21 @@
+---
+title: "Earl Sweatshirt - I Don't Like Shit, I Don't Go Outside"
+slug: "earl-sweatshirt-i-dont-like-shit-i-dont-go-outside"
+date: "2015-03-23"
+author: "Hugh Dignan"
+rating: "3.5"
+---
+
+It’s easy to forget just how young Earl Sweatshirt is. Thebe Neruda Kgositsile, the son of a poet (as he likes to mention mournfully), only turned 21 in February. Listening to I Don’t Like Shit, I Don’t Go Outside, you hear someone who seems world-weary, all used up, running on empty. He seems less the angry young man of the Wolf Gang and more like some kind of Howard Hughes-esque recluse. It’s an insular, apathetic album, moodily hesitant yet irritated in the way a sulky teenager going through an existentialist phase might be. Or like Howard Hughes. Either way, this is not the sound of a man in his prime. It makes sense that the album isn’t prime Sweatshirt either.
+
+His debut proper – 2013’s Doris – was an eclectic, energetic, and triumphant return for the prodigal son of the Odd Future collective. Earl came back from some time stowed away in Samoa seeming wiser, more self-aware, willing to push off from the shock and awe gimmickry of Odd Future into something sincerely drawn from himself. With I Don’t Like Shit, Earl seems, rather, to have withdrawn into himself more than anything. The collaborative, open nature that led to standout tracks like Molasses (where he holds his own with RZA), Hoarse (where he plays off BBNG’s stellar instrumentation), and Chum (where his monotone style meets some substance of feeling), is gone, replaced with a self-produced and largely solo-performed album that could have come out of Earl’s bedroom - or, more likely, his basement.
+
+This move further into himself yields an album that, rather than further revealing the sensitivity displayed on Doris, seems cautious, defensive, guarded. The thick, woozy, vaguely trip-hop production lends an air of impermeability to the album. It all seems dense, the layers of fuzz and snail-like beats playing against Earl’s slower than usual rapping. His uniquely monotone, idiosyncratically paced flow seems to be functioning at its lowest gear, refusing to engage in trickery, and, really, refusing to engage at all.
+
+But, for all this retreating and reclusiveness, I Don’t Like Shit remains a strong piece of work. The cautiousness could be called consolidation, the guarded lyricism a look into self-doubt. Earl gets these free passes because of the talent with which he pulls off even conservatism. This work doesn’t stretch Earl, nor, like releases by Kendrick Lamar and Young Fathers that sandwiched its release, does it push the genre.
+
+But it is solid. At a mere 27 minutes it doesn’t have the time to be big or challenging. It only really has time for Earl. It doesn’t have the time to grate either, which, despite growing in strength as the album progresses, would have likely occurred had a full-length release been so lacking in variety. It is dense enough to seem like a possible grower, but there are few immediate standouts. Grief heralds an upturn for an album that starts off slow, dreary, and only fleetingly absorbing, benefitting from an injection of urgency in Earl’s performance even when the music remains muddily atmospheric.
+
+At the same time, the muddy atmosphere is arguably what makes the album. Drawn more from the likes of Massive Attack than traditional hip-hop sources, Earl makes a case for himself as a producer with the talent to match his flow. Traces of the classic Odd Future sound are embedded – most notably on album closer Wool – but, throughout, seem distorted and distant, lending to the oppressive, claustrophobic feel of the album. The sounds match Earl’s slower style, and maybe when he feels like expressing himself more vividly they’ll grow too. As is, the sound of the album is compelling, but can just as easily wash over.
+
+Brief enough to be an intriguing insight into one of rap’s most talented prospects, I Don’t Like Shit nonetheless can’t help feeling like a disappointment compared against the work of contemporaries, and, most frustratingly, Earl himself. Executed with skill but lacking variety and energy, the album comes off as more an experiment in self-production (and, in that sense a largely successful one) than one with any kind of serious statement. Earl, and Odd Future, seem to be treading water.

@@ -1,0 +1,17 @@
+---
+title: "Heyrocco Returns To Exeter"
+slug: "heyrocco-returns-to-exeter"
+date: "2015-10-03"
+author: "Rob Scott"
+rating: "undefined"
+---
+
+“Exeter has a special place in our heart,” Nathan, Heyrocco’s spindly shirtless singer and guitarist told the Cavern crowd, two days and a year to the day that the same venue hosted their debut UK gig. Since then, they returned to Exeter last Easter in support of The Xcerts, with a set that even overshadowed the fantastic headliners. Hailing from Charleston, South Carolina, the three-piece play angst-fuelled pop-infused grunge. Their debut album released this year, Teenage Movie Soundtrack, tells tales of loneliness, lamented virginities, and premature ejaculation which sound like a melting pot of Pavement, Fountains of Wayne, and Nirvana. It’s nothing original, but there’s nothing wrong with a heavy dose of American Pie-themed 90s nostalgia.
+
+That being said, when Heyrocco took to the stage last Friday, I immediately knew something was a little different. While they played largely the same set as when I last saw them, the vocals were harsher and angrier, the playing was heavier, the band, especially the vocalist Nathan, seemed sloppier and wilder. It was as if the insecure self-deprecating, yet charming, suburban American teen of the album’s lyrics had just had enough and _lost it_. Either that or the band were just more drunk…
+
+This new twist of the band’s sound could have gone either way, but I thought it worked perfectly. It was just more exciting. The ending of Loser Denial was played at break neck speed to the point of falling apart; the song Virgin saw Nathan scream the chorus’ lyrics and drawl the closing hook - “I wanna do it over and over again” - with his hand thrust firmly down the front of his jeans; Jake Miller’s House Party had him thrusting his guitar, wailing with feedback, at the amp. Despite this newly found wildness they retained the catchiness of their songwriting, and perhaps even enhanced the humorous edge to their lyrics. Songs like Elsewhere, Mom Jeans, and Santa Fe (a track which sounds so much like The Cure that it’s almost uncanny) require only one listen to become firmly lodged in your brain. The most bizarre, but almost genius moment was a completely unexpected instrumental thrash metal track. You could tell by their faces that it was just for a laugh, but it simultaneously proved their versatility. Taco’s virtuosic metal drumming was particularly impressive.
+
+The main, massive downside of the show was of no fault of the band. The crowd, if it can be called that, consisted of about 20 people, some of whom were in the supporting bands. Not only are Heyrocco a band who deserve better, but it would have made the show better for everyone else too, as a fuller venue feels inevitably more alive. While the band insisted after the show when I spoke to them that they weren’t phased by the poor attendance, during their performance they greeted the lacklustre applause with thinly veiled sarcastic comments, giving the show a slightly awkward atmosphere.
+
+If Heyrocco play Exeter’s Cavern again - and with three visits in the past year there’s no reason why they shouldn’t - they deserve a packed out venue. I’m not sure if it comes down to the unfortunate clash with Big Narstie’s performance at Phoenix, poor advertising and promotion, or if people just aren’t excited by new live music, but there was nothing not to love about this sardonically humoured, infectiously catchy, simply fun performance.

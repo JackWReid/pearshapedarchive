@@ -1,0 +1,17 @@
+---
+title: "The Bucket Tracklist #19"
+slug: "the-bucket-tracklist-19"
+date: "2016-02-24"
+author: "Kate Giff"
+rating: "undefined"
+---
+
+Before Taylor Swift became synonymous with singing about her relationships, there was Joni Mitchell. On her 1971 album Blue, she harnessed her heartbreak over the end of her relationship with fellow singer James Taylor, creating one of the most vulnerable albums of all time. Mitchell has been quoted saying:
+
+"\[On\] the Blue album, there's hardly a dishonest note in the vocals. At that period of my life, I had no personal defenses. I felt like a cellophane wrapper on a pack of cigarettes. I felt like I had absolutely no secrets from the world and I couldn't pretend in my life to be strong – or to be happy. But the advantage of it in the music was that there were no defenses there either."
+
+This translates itself to moments of heartbreaking music, where Mitchell is - in both lyrics and melody- completely unguarded. Her signature octave-switching is in full force throughout the album. With no warning, she leaps to the most unexpected of notes, but somehow makes it sound right. This is probably due to the fact that she has an extremely clear and crisp voice that sounds as comfortable in falsetto, if not more so. One of my favourites on this record, Little Green, typifies this; there is a seamless transition from the lower notes, which give the song a little edge, to the high notes which are the typically beautiful and heart-wrenching tones you’d expect. Before first listening to this album (and definitely after reading the quote from Mitchell) I half expected the whole record to be slow and miserable, but that’s not the case. Just as she laments over what she lost on the sad songs, she talks about the future, or rather potential futures in upbeat tracks, such as Carey. In this song, she shows her ability to summarise a complex relationship in one line: “You’re a mean old daddy, but I like you”.
+
+There seem to be specific references to her relationship with Taylor sprinkled throughout the album. For example, All I Want mentions the sweater she knitted for him at the time. She includes this in a list of all the things she wants to do with him (or any love), such as “shampoo” or “renew \[them\] again and again”. This is a good example of the kind of social realism that underpins the majority of her songs; she sings about the mundane and yet makes them extraordinary in the tone of her voice and the conviction she has in the songs. However every now and again she explores the more abstract lyrics, such as in A Case Of You. This is most probably the most famous track from this album (even James Blake covered it), and within the lyrics she experiments with the more obscure symbolism: “I am a lonely painter / I live in a box of paint” to show love at its deepest.
+
+Whether or not it’s just her and the piano, or a full band, Mitchell’s voice cuts through the music so that it sounds incredibly close to you when you listen. This gives the whole record a sense of immediacy that I think really enhances the listening experience, and highlights just how good these songs are. As a massive fan of people who were really influenced by Mitchell (such as my fave, Laura Marling) this is very much up my street. Even if that’s not really your type of music, though, I still recommend listening to this record anyway. If nothing else does, the sheer honesty and willingness to be vulnerable she shows should impress you. Long live Joni.

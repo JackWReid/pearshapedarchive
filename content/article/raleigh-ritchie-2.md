@@ -1,0 +1,27 @@
+---
+title: "Raleigh Ritchie"
+slug: "raleigh-ritchie-2"
+date: "2016-04-27"
+author: "Sam England"
+rating: "undefined"
+---
+
+In the green room of Bristol’s O2 Academy, I got the chance to sit down with musician and Game Of Thrones actor Jacob Anderson, AKA Raleigh Ritchie. We chatted whilst he ate a Chinese takeaway, before he took to the stage for his hometown show.
+
+_**So your debut album came out just over two months ago now, how have you found the reaction to it, and how do you feel about it yourself?**_ I’m really proud of it. A weird thing happens when you hand in an album. You know, you suddenly start to realise that whatever you had to hand in on that day, is the album that you were always gonna make. Past that point, anything where you’re like “I would have done that, or I would have done that” is irrelevant. You just do it on the next one. So I’m really proud of it because it was exactly what I was supposed to do at the time that it was done.
+
+_**You also worked with quite a few different producers on the album, how does the creative process work with that? Do you have quite an influential input or is it more a case of them bringing a song to you and you adding your flair?**_ Oh yeah, we pretty much always work from scratch. The only one that wasn’t from scratch was Young And Stupid, but even then the actual writing of the song and building of the song happened together.
+
+_**I’ve listened to your music for over a year now, and I find it interesting, in that when I try to describe it to other people I struggle actually, because it’s very accessible, there’s nothing avant-garde about it,  and yet it manages to be pretty unique as well. I was wondering how you would describe it? What genre do you think you fall into?**_ I just say it’s pop. I know that word has a negative connotation. I want to reclaim the word ‘pop’ and make it something better, because all it is, is the absence of genre, it doesn’t belong to a tribe. Popular doesn’t have to mean successful and selling lots of records; popular can also mean something that’s accessible to everyone. I get bored doing one thing, I like lots of different types of music, so I want to take from everything.
+
+_**It’s funny that you say you get bored doing one thing, because you’re also an accomplished actor. Is it music or acting that’s the real passion or is it very much a duality for you?**_ I don’t know about accomplished. Yeah, I just don’t think I have to choose. Music is something for me that I feel like I have to do. It sounds really cheesy… I’m not gonna say it’s like breathing, that is cheesy. It’s how I get my head straight at different times, so it’s therapy, and then acting is a completely different discipline and it also helps me out in different ways.
+
+_**Yeah I suppose music is something extremely personal and intimate and then when you’re acting you’re literally pretending to be someone else?**_ Yeah! It’s the complete opposite.
+
+_**So I saw that you collaborated with Stormzy on your record, who is incredibly well respected in the music industry at the moment, how was that?**_ He’s cool, he’s a really nice guy. I knew him before we did this song, and I just wanted somebody who had a tough reputation and could be vulnerable – I wanted him to show a kind of vulnerability, and I think he really hit it. Yeah he’s just a cool guy; he’s genuinely a very nice, very intelligent human being.
+
+_**It’s interesting that you mention the vulnerability kind of thing, is that something that’s important to you in your music for it to be personal? Do you usually write from your own perspective?**_ Yeah, I pretty much just write down what’s in my head, you know? I just write down what I feel. I’m not very good at articulating myself conversationally, so the best way that I can articulate myself and how I feel about something is by writing it down, and then I turn it into a song. Quite a lot of the time, miraculously, things rhyme. Sometimes it’s really hard, sometimes I’ll spend like twenty minutes, sitting there, agonising over a sentence. Other times it feels like my subconscious is writing the song for me. I feel like a fraud taking credit for song writing because a lot of times it just comes naturally.
+
+_**Well, I suppose if that’s the case perhaps you won’t be able to answer this question, but do you have any advice for budding musicians who want to better their song writing abilities, or who want to make a career out of it?**_ I think you’ve got to make stuff that you’d listen to. That’s important. Don’t expect people to buy stuff that you wouldn’t buy, or to enjoy stuff that you wouldn’t enjoy. Don’t do it for money, because there is none. I mean I guess if you write your own songs, there’s maybe money in like twenty years but in fifty years you’ll be dead. I’d say do it for love not for money, make music that you love, and you wanna hear, and be honest. Even if you’re singing somebody else’s songs, find the way to access them that’s personal to you.
+
+_**Lastly then, what’s up next for you?**_ Well this tour is happening now. I’ll be at festivals. I’ll be at Reading and Leeds, Glastonbury, Boardmasters, and something called Victorius, so if you’re at any of those festivals then come and have a dance. The albums out! I’m writing already and working on whatever the next thing is. Just watch, because the thing is, I might just do something completely unexpected. Keep an eye out on twitter and all that stuff.

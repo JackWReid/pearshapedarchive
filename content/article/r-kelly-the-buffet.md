@@ -1,0 +1,17 @@
+---
+title: "R. Kelly - The Buffet"
+slug: "r-kelly-the-buffet"
+date: "2015-12-11"
+author: "Kate Giff"
+rating: "3.3"
+---
+
+R. Kelly is somewhat notorious, whether you’re focussing on his dodgy past of marrying a teenager, or getting down and dirty to Bump N' Grind. Two years after his last release, Kelly is back doing what he does best: singing about sex. With a title like The Buffet there was only one way to really go with this: R. Kelly wants to devour you like a nice home cooked meal, but a really sexy home cooked meal.
+
+It’s clear that R. Kelly is trying to keep up with the young guys in the R&B game, mixing his typical slow jams with more fashionable drum beats such as in Anything Goes. There’s a well established tradition in these sexy R&B tracks for the singers to be pretty straight forward when describing what they want, which is usually sex. Kelly is no exception throughout this album, and I have to admire his honesty. There is no cloaking of desires in subtle innuendos: one of the tracks is called Sextime, and he wants to be "banging on the wall ’till they hear it down the hall" and he doesn’t care who knows! (For those interested, R. Kelly seems to have a preoccupation with making his sexual partner’s legs shake, so that’s good for them.)
+
+The Buffet’s introductory track is a spoken word piece where Kelly explains his concept of the women’s body being a buffet in which you bet he’s getting all he can eat. This includes the most uncomfortable part of any album I’ve heard this year, where he demands: "Let me _slurp_ you, and I promise I won’t leave a drop." No words can describe the true effect of that slurp. If it’s the only thing you listen to, I urge you to play the introduction; you’ll be entertained by the marvellous notion of a "platter of satisfaction", and R Kelly "toasting your juices all night like 'cheers!'"
+
+There are, however, points where he slips back in to the Boys II Men brand of smooth R&B, such as in It’s All My Fault. There seems to be a strange tension in the record between the new and old R. Kelly. From track eight, he regresses back to the white-suit-wearing, sunglasses-crooning gentle jams that I thought this album was going to be from the get go, which I think is a shame, but, that’s how he made his name, so I’m unsurprised. Backyard Party, Get Out of Here With Me and Sextime are the weak grandparents of the hip and happening rest of the album, which go from the prominent drums of Drake-esque tracks, to the Caribbean influences which are more like Sean Paul, to a short dedication to soul in Sufferin'.
+
+In a way, this album is the equivalent of Mark from next door’s brand new red convertible. R. Kelly is young and hip and cool! People still want to have sex with him! Regardless of this, I genuinely don’t think the first tracks are awful and even I (who, in all honestly, do not have a lot of time for the likes of the crooners and their smooth beats) can get on board with this version of R. Kelly, as long as he keeps his relationships strictly 18+ from now on. On the other hand, the classic 90s sex tunes are, in my opinion, completely dated. We have Drake for that now, so we don’t need those cheesy croonings anymore. That being said, I liked this album on the whole. Admittedly, hearing R. Kelly sing about sex gets a bit repetitive after a few songs (never mind 18), but on the most part, the tracks are modern, catchy and kind of so bad they’re good. All in all, I’m pleasantly surprised, and may even listen again.

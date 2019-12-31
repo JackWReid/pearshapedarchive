@@ -1,0 +1,29 @@
+---
+title: "Oxfam Jams #1"
+slug: "oxfam-jams-1"
+date: "2017-04-05"
+author: "Liam Hill"
+rating: "undefined"
+---
+
+_Editor's Note: In fortnightly instalments, Liam Hill's Oxfam Jams will provide readers with an insight into the musical gems that can be found inside the Oxfam Music & Arts store in Exeter. Focusing on a different pick each time, Oxfam Jams will highlight how easy it is to access great quality records, whilst also helping a great cause. _
+
+Oxfam is a household name. But before I start talking about the music, I want to bust some myths and give a little introduction to some of the work that Oxfam does. A startling fact highlighted by Oxfam is that “for every person dying in a terrorist attack, 20 women die in childbirth, 100 people die of AIDS, and 240 die from tobacco-related illnesses.” And whilst that is shocking, “today, there are 2.8 million fewer child deaths than there were in 1990. Another 1.2 billion people have gained access to clean water over the past decade, but a further 1.1 billion still lack access to safe water and 2.6 billion have no access to improved sanitation. On the rise: life expectancy, literacy, access to birth control. Falling fast: infant mortality. Eradicated: smallpox”. It shows, that despite the contention of the power (or lack of) aid and donations, that the work Oxfam is doing really is making a difference.
+
+As well as helping those in desperate need of aid and assistance, Oxfam and their legion of volunteers give back to the community through their stores. Here in Exeter, we are lucky enough to have three of them, all perched next to each other like Bob Marley’s little birds. But this column will only ever focus on one of those three shops, the Music & Art Shop, sandwiched in-between the general store and the beautifully kept book shop (which if you haven’t visited, I highly recommend).
+
+When you enter the Music & Arts shop, you might not think of it as a charity shop. Of course there are Oxfam materials and signs, but the stock, layout and general feel of the store certainly does not ring bells in chime with your typical charity shop. And that’s not to say there is anything wrong with normal charity shops, but there is something quite pleasant about entering a charity shop and yet feeling like you are in a ‘normal’ record shop, where the truly brilliant staff have a genuine passion and understanding for what they are selling and the enthusiasm to drive the shop forwards, rather than sitting in neutral.
+
+Anyway, to the first ever pick. I wanted to start this column by showcasing how amazing the musical content sold in this shop really is. So I open with Radiohead. “Radiohead?” I hear you cry, “I can get that anywhere”. This is true, but I’m not talking about the everyday, run of the mill Radiohead. The incredibly generous population of Exeter (and surrounding towns) never seem to fail this treasure trove, with a brilliant individual donating a gorgeous Limited Edition, CLEAR vinyl, Creep E.P. For any avid vinyl collector with any degree of an obsession, coloured/clear vinyl can be a dangerous holy grail. I’ve been known to buy vinyl on the whim that I potentially won’t even like, simply because the vinyl is coloured, shaped or pictured.
+
+Although the price at £24.99 might seem quite high for four tracks on a circular grooved piece of PVC, this is in fact a competitive price (check [Discogs](https://www.discogs.com/Radiohead-Creep/release/734036) for comparison) and a highly sought after rarity. I concede that this isn’t necessarily everyone’s cup of tea, and is aimed more towards the super-fan, but at worst this is an investment, with Radiohead being the Pink Floyd of our time with regards to enthusiasts, collectors and musical progression.
+
+More to the music, Creep is a track that shouldn’t really need any introduction. Their first single taken from their debut, it is probably their most known, most radio played and most accessible. Although Pablo Honey, the album Creep is taken from, is rarely hailed as their greatest release, Creep is often crowned as one of the greatest ‘indie’ songs ever produced.
+
+Unlike some of their later work, Creep is a more traditional rock song based largely around the guitar and Thom Yorke’s incredibly beautiful and distinct vocals. Encapsulating teenage angst and speaking to all the of the unique and wonderful outcasts of the world, Thom Yorke tells the tale of a shy, unconfident, and self-doubting protagonist desperately trying to gain the attention of an individual that they feel they will never be good enough for. This is a truly iconic and unforgettable masterpiece, and for those who have somehow managed to avoid it, do yourself a favour and begin your Radiohead journey with this phenomenal introduction track!
+
+Whilst I wish I could talk more about Radiohead and their outstanding contribution to music, the genesis of this column need be balanced between both introducing music and the fantastic charity behind it, and thus I shall save my musical indulgences for another time, perhaps for a more obscure addition.
+
+For any more information, either visit the store 97 South Street, Exeter, EX1 1EN, give them a call on 01392 253796 or visit their [website](http://www.oxfam.org.uk/shop/local-shops/oxfam-music-shop-exeter). For any readers who don’t have the pleasure of living in Exeter but are keen to get their hands on this, the Music shop does post vinyl - I’m sure if you contacted them, they would help you out!
+
+Finally, I must add that none of this would be possible without the incredibly hard working, dedicated and enthusiastic brigade of volunteers. This shop would be nothing without all of the incredibly generous individuals that turn up every day to make sure that the finest quality goods are displayed at the most exceptional of standards, and for your commitment I humbly say, thank you!

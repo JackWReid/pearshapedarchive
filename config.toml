@@ -1,0 +1,4 @@
+baseURL = "https://pearshapedarchive.com"
+languageCode = "en-gb"
+title = "PearShaped Magazine Archive"
+theme = "starter"

@@ -1,0 +1,15 @@
+---
+title: "Kaiser Chiefs - Education, Education And War"
+slug: "kaiser-chiefs-education-education-and-war"
+date: "2014-03-31"
+author: "Matt Hacke"
+rating: "3"
+---
+
+Let’s ignore the recent foray of Kaiser Chiefs' lead singer, Ricky Wilson, into The Voice UK on the BBC. I have very little positive or constructive things to say about that programme, so I’ll leave you to imagine the scathing but ultimately pointless comments in my head at the moment. Still, Jermaine from the most recent season did have a cracking voice. But back to the Kaiser Chiefs. Primary songwriter, Nick Hodgson, left the band in the interim between The Future Is Medieval and Education, Education And War, so I was interested to see if the band’s sound had deviated from that of their previous effort. Ultimately, Education, Education And War doesn’t sound all that different from the band’s back catalogue, and I would go so far as to say that the album overtly exaggerates the giddiness and riotousness of the Chiefs' hits. If you’re a fan, I’m sure this is a worthwhile purchase. However, I wouldn’t expect many new listeners to be won over.
+
+I haven’t followed the development of this album up to its release, so when I listened to it for the first time I really had no idea which tracks had been released prior. Indeed, I only considered this question as the eighth track, Bows And Arrows, came on. If you haven’t looked over the band’s discography then it’s nearly impossible to tell which are the singles; this fact that serves as both a positive and negative. All the tracks in the album are of the same solid standard, whether it be juddering opener, Factory Gates, or the more anthemic Cannons towards the tail-end of the set list. Therefore Education, Education And War ticks along nicely without the dip in quality that many albums suffer from after the dynamism of the early numbers.
+
+However, whilst the standard throughout the album is decent, it never quite reaches the heights of the band's previous celebrated tracks. Whilst Cannons has a pseudo-chanted section towards the end (before the bravely-included poetry coda), it just isn’t as effective as the climax to The Angry Mob. Meanwhile the giddy thud and stomp of Wilson’s vocals in Misery Company pails in comparison to Everyday I Love You Less And Less. Whilst every track could feasibly be a single, it's a shame none of them quite reach the standard of the Kaiser’s excellent back catalogue.
+
+All in all, Education, Education And War is a decent investment. It’s dominated by the band’s quintessential sound – reminiscent in passing of acts such as Orchestral Manoeuvres In The Dark. Despite the clear homage to the band’s previous work, I appreciated the inclusion of the more introspective Roses, which reminded me of my favorite Chiefs' song, Modern Way. If you’re a fan, I recommend picking up the band’s fifth album, as I doubt you’ll be disappointed. However, I wager you’ll be far more likely to listen to Souvenir, the single compilation released by the band in 2012, than Education, Education this time next year.

@@ -1,0 +1,19 @@
+---
+title: "Foster the People - Sacred Hearts Club"
+slug: "foster-the-people-sacred-hearts-club"
+date: "2017-07-21"
+author: "Rasagnya Gurung"
+rating: "3"
+---
+
+There's a moment in everyone's life that makes them reconsider their lives: sometimes it's as groundbreaking as being told that Santa is not real, whilst sometimes it's as simple as realising that you have been pronouncing a word wrong for as long as you can remember. As a naive 13 year old, learning that my favourite summer bop was actually about a psychotic teen dreaming of gun violence was quite high on this spectrum and mentally scarring, to say the least. Five years ago, my impressionable mind just could not comprehend the beautiful paradox of a very special song called Pumped Up Kicks by Foster the People, so I blissfully ignored the dark underlying theme. Nonetheless, over time, I fell in love with the message of the song: to raise awareness about a taboo issue through a universally likeable song. Ignoring their lacklustre attempts at a hit after Torches (their debut album), I sat down to listen to Sacred Hearts Club, hoping to come across gems like Pumped up Kicks which subtly hint at social issues (in disguise), because God knows how we need that in the insufferable year of 2017.
+
+Sacred Hearts Club is Foster the People's third studio album and according to the band, they "wrote these songs to reflect joy in a time where people have needed it more than ever". How convenient of the band to offer exactly what I was hoping to find - but could they deliver on their word? As I took the plunge and pressed play, I was taken aback by the opening song, Pay the Man, and immediately disappointed. Straight off of the bat, Foster the People digress from their traditional indie sound and give us the prelude to a more electronic and hip-hop influenced album which vaguely reminds one of Alt-J and MGMT. I got over my initial hatred for Pay the Man and found myself nodding along by the end of it.
+
+Much to my dismay I got through the album quickly, experiencing similar feelings with each song. Every track was more forgettable than the one before. From a band like them, I expected something more refined and sophisticated than an album which could pass off as a teenage indie band's debut. Although I greatly appreciate artists who evolve with the dynamic preferences of the music industry's audience yet manage to stay true to their own brand, Foster the People fail to convince me that their "new sound" is authentic. The songs lack character but are still an improvement over the band's disastrous second album, Supermodel.
+
+When reflecting on the promised theme of youthfulness, it is clear that the band delivers on that front. With relatively simple and straightforward lyrics, the band skilfully employs the same technique used in Pumped Up Kicks. However, this time around it falls flat and reminds one of bad poetry they would find scribbled on napkins in a 24 hour diner. The candour of the lyrics complements the messy soundtrack and makes the songs somewhat appealing, though.
+
+Despite repetitive beats and unimpressive lyrics, some songs definitely do stand out. Songs like Sit Next to Me and SHC hit the right chord and I rushed to add them to my library. Sit Next to Me has a sultry and intimate beat combined with the classic summer trope of a light hearted romance. Meanwhile, SHC reflects on enjoying life and unifying people through hardships. Foster the People's best quality, aka the boyish charm of their music, becomes their worst enemy and disables them from standing out in an overcrowded market of artists who offer much more.
+
+Although, as much as I hate to admit it, the more I listened to the album, the more it grew on me. If you're looking for a light-hearted album to casually jam to, then look no further. If you're looking for a permanent edition to your ever expanding collection of alternative tracks, then tread with caution.

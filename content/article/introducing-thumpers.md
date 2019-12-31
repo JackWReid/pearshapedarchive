@@ -1,0 +1,15 @@
+---
+title: "Introducing: Thumpers"
+slug: "introducing-thumpers"
+date: "2013-08-29"
+author: "Lizzie Hatfield"
+rating: "undefined"
+---
+
+In fact, this duo were part of popular band, Pull Tiger Tail until 2011 when they split due to unresolvable issues with their record label. However, fans of the duo should fear no more as these guys are back and better than ever under their new name of **Thumpers**. Influenced by their work with Friendly Fires and Noah and the Whale during their time apart, Pepperell and Hamson Jnr have reunited and come up with an electrifying sound, constantly filled with catchy riffs and ambient vocals. Their first track, Sound of Screams, appeared on the internet back in April 2012 and made quite an impression - leading to their first show selling out. The song is a lusty and fragmented indie-pop track, which gave a promising glimpse of the kind of sounds we would be hearing from Thumpers in the future.
+
+The boys certainly didn’t disappoint with their first single release, Dancing’s Done. Alongside tunes Big Heat, and Velveteen, this trio of tracks is a little hidden gem to be found within the vast expanse of alternative indie music. Ghostly vocals accompany a happy-go-lucky chorus on Dancing’s Done - a sound fairly reminiscent of Klaxons which is unsurprising seeing as both Pepperell and Hamson Jnr used to live with the band. After the release of these tracks, Thumpers were picked by The Guardian as their ‘New Band of the Day’, who claimed “Here’s a duo who make spiritual feelgood music for people who don’t necessarily want to go to church”. An odd way to phrase it, yet after listening to these two you have to admit you know exactly what The Guardian are on about.
+
+Thumpers’ joyful sound continues and lifts off on their debut EP, released earlier this year in June. The EP is titled Unkinder EP, no doubt because its namesake is Thumpers’ best track to date. Unkinder (A Tougher Love) hooks the listener immediately with its gleeful vocals and impressively catchy chorus. One could criticise the track for being irritatingly feel-good, but we all know really that rather than a criticism this is a guilty pleasure that everyone likes to indulge in once in a while. The low point of the EP is Innocence, featuring Gaggle. A brave attempt at covering the unique sound of Bjork, the result instead turns out to be an awkward mess of loud drum beats and uncomfortable screechy backing. Ignoring this anomaly however (which we can blame on Bjork), Thumpers seem to have found a sound that fits perfectly into the current UK music scene. Their performances at Reading and Leeds on the BBC Introducing Stage this year were particularly impressive, and a highlight of the weekend for anyone who managed to watch them.
+
+Overall, us guys here at PearShaped see big things happening for Thumpers in the future. Keep a look out for them and make sure you have a listen to some of their tracks if you haven’t already. We guarantee one or two of them will get stuck in your head!

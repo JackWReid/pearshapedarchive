@@ -1,0 +1,17 @@
+---
+title: "The Rolling Stones - Blue And Lonesome"
+slug: "the-rolling-stones-blue-and-lonesome"
+date: "2016-12-02"
+author: "Connor Jackson"
+rating: "4"
+---
+
+To play the blues is to express the innermost feelings unique to the artist; to cover the blues is an entirely different kettle of fish. And so The Rolling Stones’ new album Blue And Lonesome, a cover of blues classics ranging from the most famous of tracks to the deepest of cuts, must be closely scrutinised. The Rolling Stones, after all, take their name from a Muddy Waters song Rollin’ Stone. Their musical style, known the world over, is one of a usually fast-tempo type of blues rock. Barring a short spell in psychedelic rock - which 60s rock band didn’t dabble in hallucinogenics? – the blues has been the clearest influence on the band.
+
+In my [review](http://pearshapedexeter.com/the-rolling-stones-havana-moon/) of The Rolling Stones’ Havana Moon I found myself underwhelmed by a sub-par cover album of their own tracks, devoid of character. No doubt, then, I had reservations about this album - a cover album of legendary blues titles could only be a disappointment compared with the originals. But I wasn’t disappointed.
+
+Mick Jagger’s ostentation is toned down a notch as he takes a far more contemplative and considerate approach – you can feel the respect the entire band have for the originals in each and every track they perform. There is a certain soulfulness and power that can be felt through listening to this album. As much as there is an attempt to recreate the originals in their full glory, it is clear that the Stones have attempted to put their own spin – by and large, the tracks on Blue And Lonesome are somewhat more up-beat, layered with more instruments and, in a way, betray a sense of child-like excitement at the opportunity to emulate the greats that so heavily influenced the band.
+
+There are almost too many great tracks to name, each in their own way. Commit A Crime is almost a like-for-like representation of Howlin’ Wolf’s – Jagger displays a remarkably adaptable voice, emulating in each song the singing style of the originals and, in a number of songs, proves his capability as a harmonica player. Little Rain portrays an uncanny mournfulness that makes the song appear an original of the band’s and not, in fact, a Jimmy Reed cover. Blue And Lonesome, the album’s namesake, is much like the Little Walter original yet it is more formidable, more instrumental, more energetic and more polished.
+
+My one criticism is this: the presence of polishing mars the whole album. Every song is perfectly practised and performed and, in spite of improvised guitar solos and riffing, there is a loss of character and authenticity. Eric Clapton even lends a hand in a number of these tracks but, ironically, his technical brilliance sets him up for failure because his play style lacks character and grace that Keith Richards is capable of. Indeed, these songs are fantastic in their own right as a Stones take on classic blues, but they almost miss the point of the blues. To cover the blues is to lose, in some part great or small, the character of the blues itself. But, at the same time, to compare the Stones’ versions to the originals does a disservice to the album: they are more than just covers, they are an adaptation, an interpretation, an homage to the musicians and musical styling that created the band that we all know and love.

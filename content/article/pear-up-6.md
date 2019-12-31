@@ -1,0 +1,21 @@
+---
+title: "Pear Up #6"
+slug: "pear-up-6"
+date: "2016-06-03"
+author: "Finn Dickinson"
+rating: "undefined"
+---
+
+_Image: Shuggie Otis_
+
+So in case you missed it, summer is here. With regard to music, that means something of a mixed bag. It means people blasting sub-par chart music from hot cars and endless advertisements for Now That’s What I Call Music! number 4535745 (warning: plays fast and loose with the term music), but it also means festivals – and lots of them. For those who attended Radio One's Big Weekend last week, I don’t need to explain how great the combination of excellent live music and summer weather can be. There’s nothing quite like that feeling (which is why I believe post-festival blues are an equally unique phenomenon), but you can get pretty close with the right summer listening. Revelling in post-exam bliss and aestival lightness of being, I drift back to my affections for soul music. Done well, it has a pure jubilance and, well, _soul_ to it, which is perfect for those warm summer days. With that in mind, I thought I’d write about some of the most adventurous soul music out there – there’s nothing wrong with some Marvin Gaye every now and then, but there’s a lot beyond What’s Going On.
+
+Soul music actually went on for quite a long time without much outside influence. The idea of a genre maintaining itself and its growth for about a decade and a half, whilst preserving its tenets in such a rigid fashion, is about as impressive as it is disappointing. But when soul music was finally ready to be expanded (or diluted, depending on whom you ask), this came in the form of psychedelic soul. Psychedelic soul - even the name sounds cool. Without going into too much detail, the genre was a fusion of two of the most expressive styles of ‘70s music – psychedelic rock and soul. It was the best of both worlds, featuring bluesy, proficient solos and gospel derived croons, as well as the generous jazz influence brought forth by both types of music. Shuggie Otis arguably pioneered the sound, and certainly embodied almost all of its best qualities. Although its heyday was really in the mid ‘70s, artists like Matt Corby and Lianne La Havas are still keeping its spirit alive with modern production and great songwriting.
+
+Then there are these artists who fuse soul music with that new _electronic_ music that they have now. You know, electronic music – they play it in the clubs and in the films. This obviously makes no sense. Soul music comes from the heart, mining from the depths of human emotion and earnestness, whereas everyone knows electronic music is written by computers and sung by androids. They have names like SOHN, HONNE and MNEK, which must be acronyms for advanced computer programmes. Some of it is pretty great though. Replacing the live instrumentation which traditionally accompanies soul music may seem like a terrible idea at first, but the electronic approach adds a smoothness to the music which is unparalleled, and gives the introspective, abstract lyrics usually employed by modern soul artists a hell of a lot more weight. I can’t really imagine ‘60s instrumentation backing up lines like:
+
+> "I died a week ago There’s nothing left It’s caught on video The very last breath."
+
+I won’t go into all the niches here, but suffice to say there are plenty of great soul artists who don’t fit into the previously mentioned categories. Last year was an exemplary year for innovation in this area. 2015 saw the return of ‘future soul’ juggernauts Hiatus Kaiyote, to well-deserved acclaim, and of multi-genre-spanning bassist and soul singer Thundercat, as well as the emergence of ‘dystopian soul’ pioneers Algiers. This year promises to bring some interesting music to the table, too, at the very least in the form of folk-soul artist Michael Kiwanuka’s sophomore effort. Now, if Frank Ocean could just stop twiddling his thumbs, wouldn’t that be great? Oh well, here’s some music.
+
+**Recommended Listening** Shuggie Otis – Strawberry Letter 23 SOHN – The Wheel Matt Corby – Knife Edge Thundercat – Oh Sheit It’s X Lianne La Havas – Green & Gold HONNE – Gone Are the Days Algiers – Games Hiatus Kaiyote – By Fire Michael Kiwanuka – You’ve Got Nothing to Lose

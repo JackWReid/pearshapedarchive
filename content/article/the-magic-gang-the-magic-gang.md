@@ -1,0 +1,17 @@
+---
+title: "The Magic Gang - The Magic Gang"
+slug: "the-magic-gang-the-magic-gang"
+date: "2018-03-16"
+author: "Nicole Gadras"
+rating: "4"
+---
+
+Brighton four-piece The Magic Gang have been on the scene for a good three to four years now, and the steady stream of EPs that they’ve released over that time have certainly not left them short of material for an album. Having toured with guitar-band-of-the-moment Wolf Alice and more recently Sundara Karma, their breezy, bouncy indie pop has drawn comparisons to the likes of The Beach Boys, Weezer and even The Beatles. But if their much-anticipated debut has been a while in the making, the band sound all the better for it, with their self-titled debut featuring their biggest singles to date as well as new material, packed with vibrant hooks and contemplative lyrics.
+
+Oh, Saki kicks off the album as the first of the several songs dedicated to girls (see also: Caroline, Jasmine. Break-ups and various failed relationships seem to be a bit of an overall theme). The easy sing-along lyrics, seamless harmonies and punchy beat introduced by drummer Paeris Giles all set the tone for what’s to come. The exuberant guitar melodies and lyrical reflections on lost love continue on All This Way and Getting Along – the latter has an exceptionally catchy hook, as the band harmonise together, belting out in swaggering despair, “I don’t wanna fall asleep, ‘cos then I won’t see anything”, and “When I wake up, you won’t be here”.
+
+Old fan favourites Alright (first released as the band’s debut single way back in 2015) and Jasmine both make reappearances, slightly reworked for the album with longer choruses. They’re the kind of simple feel-good tunes that The Magic Gang specialise in, the sunny, energetic melodies belying the candidness of the lyrics. Your Love is another stand-out example, and sounds exactly like The Beach Boys have somehow time-travelled to 2018, even though All I Want Is You is the track that was apparently inspired by singer/guitarist Jack Kaye’s perusal of Brian Wilson’s memoirs. Sometimes, however, the formula of simple lyrics + catchy hook doesn’t quite work – fifth track Caroline is the album’s main disappointment, the lyrics being overly repetitive and thumping along awkwardly with the bassline, in the style of a three-legged hippopotamus.
+
+Take Care, the seventh track on the album, is the first one to slow it down and go a little bit deeper, as a piano-based ballad that’s reminiscent of Tobias Jesso Jr. but with a fuzzy guitar pedal added in on the side. Bassist Gus Taylor takes a turn on vocals for the first time, singing forlornly, “Don’t you think the world feels a little colder, without our love?” It’s the kind of track that you’d want to listen to while staring out of a train window at dusk as raindrops trickle down the glass. The album could almost do with a couple more tracks like this one. While the effervescent pop choruses are excellent, the poignancy of tracks like Take Care, and also I’ll Show You, a sweetly sad tribute to an unrequited love, are the moments that really add interest and variety.
+
+Ultimately, it’s a confident album and really captures the band’s sound, with some real anthems as well as moments of emotional poignancy. It’s also nice to see a guitar band being received with such enthusiasm at a time when this kind of music seems to have fallen out of favour. I wouldn’t go as far as to buy The Magic Gang on vinyl, but I’ll definitely be listening to it again.
